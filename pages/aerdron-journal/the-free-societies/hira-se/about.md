@@ -1,0 +1,1 @@
+The Hira-se are arthropod's at birth and are enhanced with cybernetics throughout their life. They are a highly successful species and in terms of sheer influence they rival most ascendant civilizations.

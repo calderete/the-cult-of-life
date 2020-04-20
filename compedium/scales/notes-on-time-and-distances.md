@@ -9,10 +9,13 @@ The 300 amount is derived from the "Universal Galactic Rotation Cycle" or "Galad
 _**Micro Time Format Description:**_ <br>
 **Intex-Seta-Inem**
 
+Imex = 1 second<br>
 Interum = 100 seconds<br>
 Setadex = 1,000 (16 minutes)<br>
 Interdex = 10,000(slightly less than 3 hours)<br>
 Caldex = 100,000(slightly less than 28 hours)<br>
+
+**Ada-Kayd-Caldex**
 
 Adex = 10 Kaydex/300 Caldex<br>
 Soradex = 100 Adex (Soral Cycle)<br>
@@ -36,4 +39,4 @@ seggeta = 100th of a setch<br>
 
 ### Addresses and locations
 
-The Agion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems.
+The Agion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems. Over time planets and systems
