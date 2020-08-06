@@ -17,4 +17,12 @@
   - Elite Arbitor
   - Elite Acolyte
 
-  Example: Elite Acolyte Medical Commander Thora Chinto 
+  Example:
+  - Elite Acolyte Medical Commander Thora Chinto
+  - Elite Executor Column Commander
+  - Elite Executor Strotium Commander
+
+  Reg Example:
+  - Honored Battle Strotium Commander
+  - Honored Justice Strotium Commander
+  - Master Column Commander

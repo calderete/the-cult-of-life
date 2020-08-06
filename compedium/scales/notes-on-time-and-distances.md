@@ -32,7 +32,7 @@ _**Macro Format Description:**_ <br>
 Stardex is the distance light travels in an Adex<br>
 setch = inch equivalent<br>
 setta = 20 setch<br>
-terru = 100,000 setch (~a mile and a half) or 5000 setta<br>
+tekudex = 100,000 setch (~a mile and a half) or 5000 setta<br>
 
 Nama-setch = 10th of a setch<br>
 seggeta = 100th of a setch<br>
