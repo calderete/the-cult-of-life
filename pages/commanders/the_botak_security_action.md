@@ -35,3 +35,5 @@ The commander broadcast to his command channel "Broadcast war salutation and exe
 _Reaper-1_ fired it's weapon into a cruiser formation, a beam of charged plasma that could turn a moon to slag hit the subnovum shield of the lead attack cruiser. And that is when the botaks first saw archon tech in action as the beam was perfectly reflected off of the sub-kenetic matrix field. At first at an angle relevant to the angle it was hit, and then to the botak's horror directly back into their own ships.
 
 A queue of conformations stacked up in the commanders nero-com and after a quick scan mass approved all attack plan orders. Status reports began flowing in seemingly only moments after the tell tale-flash of the Archon _Vengance_ class assault transports engaged their displacement fields to convey themselves to their prey.
+
+The Status reports where all positive.
