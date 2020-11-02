@@ -1,6 +1,6 @@
-## Agion Conglomerate
+## Ogion Conglomerate
 
-While technically all divisions of the Agion Conglomerate are for hire...It is only the services of the Honor Division that most can afford. Only the Primes can pay the bill for the Agion's to deploy _any_ of their War Division into Honor service.
+While technically all divisions of the Ogion Conglomerate are for hire...It is only the services of the Honor Division that most can afford. Only the Primes can pay the bill for the Ogion's to deploy _any_ of their War Division into Honor service.
 
 How an empire or conglomerate pays can vary...they can pay with resources, or planets and star systems, or even with service (a very few are deemed worthy to pay wit service)
 
@@ -15,13 +15,13 @@ How an empire or conglomerate pays can vary...they can pay with resources, or pl
 - Peace Division
   - Interstellar Peace Fleet
     - High Guard
-      - Mission: Protect the Agion Leadership
+      - Mission: Protect the Ogion Leadership
 
     - Elite Guard
-      - Mission: Protect high value Agion interests
+      - Mission: Protect high value Ogion interests
 
     - Core Guard
-      - Mission: Protect the core worlds of the Agion Conglomerate members
+      - Mission: Protect the core worlds of the Ogion Conglomerate members
 
     - Interstellar Guard
       - Mission: Protect interstellar and frontier space of members of the AC

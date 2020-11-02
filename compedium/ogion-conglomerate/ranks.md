@@ -7,7 +7,7 @@ The Commander is the executor
 # Command Ranks
 - Honored War-Steward Stretago (This officer is charged with the guardianship of a galaxy, they are in command of all fleets and Armies)
   - Honored Divaxum Commander _(division commander)_
-    - Strotium Commander, Column Commander _(fleet, army commander)_ 
+    - Strotium Commander, Column Commander _(fleet, army commander)_
     - Ship Commander, Battalion Commander
     - Squadron Commander, Company Commander
 
@@ -24,7 +24,7 @@ The Commander is the executor
 
 ## Galactic Administrator Ranks
 
-- Agion Alliance Director
+- Ogion Alliance Director
   (First )
   - Honored Galactic Executive Director (Executive Director of between 2 and 10 galaxies)
   - Galaxy Administrative Director

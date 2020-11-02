@@ -1,14 +1,14 @@
 ### The Botak Securtiy Action
 
-War has lost it's glory. The thought sickened the commander, he would take no pride in what ever the outcome of the current caldex...he would not feel the feral rush of having mastered death, or a senior commanders paternal pride. No, even the inevitable feeling of accomplishment that accompanies mentoring soldiers and leaders had been taken from him. The war-steward stretago had seen fit to assign him war-strotium and columns whose soldiers and pilots where the most talented bringers-of-death-and-destruction this galaxy would ever see.
+War has lost it's glory. The thought sickened the commander, he would take no pride in what ever the outcome of the current caldex...he would not feel the feral rush of having mastered death, or a senior commanders paternal pride. No, even the inevitable feeling of accomplishment that accompanies mentoring soldiers and leaders had been taken from him. The war-steward stretago had seen fit to assign him war-strotiums and columns whose soldiers and pilots where the most talented bringers-of-death-and-destruction this galaxy would ever see.
 
 There where no real lessons of war left for him to teach such finely tuned wills of death.
 
-And their potential adversaries while belligerent and determined as any this galaxy has birthed, where a young and inexperienced line. And if they designate themselves as enemies of the Archon, he will feel no glory in their ultimate demise.
+And their potential adversaries while belligerent and determined as any this galaxy has birthed, but they where a young and inexperienced line. This feral race was not going to let go of their old gods he thought, and he will feel no glory in their ultimate demise.
 
 From his observation deck with dozens of data consoles in from of him, and a neuro-com link to his top officers, the elite-executor-strotium-commander perceived, consciously and subconsciously every action and position of all elements under his command.
 
-Despite his cynical thoughts, the commander diligently scanned the data and com flows for strategic information, and so he was aware of the request for secure com delivery from their charges.
+His diligence was unaffected random thoughts.  commander diligently scanned the data and com flows for strategic information, and so he was aware of the request for secure com delivery from their charges.
 
 His executor adjutant would be filtering out the tedious details of the message. She was a brilliant executor...nothing left for him to teach...
 
@@ -20,7 +20,7 @@ His executor adjutant would be filtering out the tedious details of the message.
 
 An uncrackable subnovum neuro-stamp follows from his adjutant confirming his order to change the fleet stance with a request for his command key. Within a fraction of an imex he completes his reply and all battle platforms and ships under his command begin making low power preparations for battle. Within every war platform under his command, eyes began to regard their targets as prey.
 
-The commander continued his scanning of data, his mind putting every intercepted unaligned communication into context with his recently acquired knowledge of the potential enemy war assets, his battle plan as always in these times depends on deep intelligence. The commander refocused the primary viewer to his main charge and regarded the scene filling up his view from the observation deck. Several million tekudex ahead of his command ship was an array of ~half a million ships and war platforms, their weapons postured against a gleaming speck that is the commanders most vulnerable charge, an archon envoy pheaton. On board the pheaton the honored-envoy-of-peace, who would be devotee to the cult-of-life, pleaded with the belligerent unaligned leaders to accept the terms given them, and vacate the space that was now under the agion protectorate. On that same pheaton was a device of far ancient origin......a panic button which when pressed summoned the envoy's custodians.
+The commander continued his scanning of data, his mind putting every intercepted unaligned communication into context with his recently acquired knowledge of the potential enemy war assets, his battle plan as always in these times depends on deep intelligence. The commander refocused the primary viewer to his main charge and regarded the scene filling up his view from the observation deck. Several million tekudex ahead of his command ship was an array of ~half a million ships and war platforms, their weapons postured against a gleaming speck that is the commanders most vulnerable charge, an archon envoy pheaton. On board the pheaton the honored-envoy-of-peace, who would be devotee to the cult-of-life, pleaded with the belligerent unaligned leaders to accept the terms given them, and vacate the space that was now under the Ogion protectorate. On that same pheaton was a device of far ancient origin......a panic button which when pressed summoned the envoy's custodians.
 
 "Designating enemy battle fleet **Botak**" his adversaries had been named. The neuro-com highlighted and persisting the names importance to all on his command link. With the call sign designation the _Blades of the Archons_ had prepared for battle as much as they could without further enflaming the brash _Botak_ leaders with telltale heat from fully powered weapons.
 

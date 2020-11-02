@@ -39,4 +39,9 @@ seggeta = 100th of a setch<br>
 
 ### Addresses and locations
 
-The Agion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems. Over time planets and systems
+The Ogion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems. Over time planets and systems drift, and even whole galaxies may merge. As such in non-hogenous regions this results in sectors hosting many jurisdictions 
+
+Galaxy
+Destaspan
+Dovospan (sectors)
+Systems
