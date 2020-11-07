@@ -6,7 +6,7 @@ An operator is an everything.
 
 In title, they are envoys of the Ogion principle command, and her orders come from the highest of the executive strata. Given that, in practice they are both an emissary of peace, and a machine of death. To the race-lines that have known them, they have been called angel, daemon, mentor and nemesis.
 
-Right now she was death and moving.
+Right now this operator was death and moving.
 
 She had warned them of this, after coming to this moon in the Hkoth system and been accepted as a mentor by the Batha (as the inhabitants of Hkoth 4-2b called themselves). Her universal translator had quickly indexed the language of the Batha, their physiology did not react adversely to the translator tech, and she had been able to communicate quickly, she had pointing to a sea called _The Ighthzx_ and said
 

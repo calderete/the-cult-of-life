@@ -27,6 +27,17 @@ Deonox = 1,000,000,000 Adex (Deonoxium Cycle)<br>
 _**Macro Format Description:**_ <br>
 **Deo-Meta-Hepta-Teka-Sor-Ad**
 
+#### Examples
+Deo-Meta-Hepta-Teka-Sor-Ad
+
+24.345.687.230
+
+is:
+
+24th Deonox, 345th Metadex, 687th Tekadex, 230ths Adex
+shortened:
+24dx-345-678
+
 ### Distance
 
 Stardex is the distance light travels in an Adex<br>
@@ -39,7 +50,7 @@ seggeta = 100th of a setch<br>
 
 ### Addresses and locations
 
-The Ogion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems. Over time planets and systems drift, and even whole galaxies may merge. As such in non-hogenous regions this results in sectors hosting many jurisdictions 
+The Ogion Guardianship has a presence in hundreds of galaxies, all named. Galaxies are then divided by features (arms, rings...) into galactic divisions sometimes called Destaspan, these are also named. Each destapan is divided into sectors (Dovospan) and can be made up of thousands of Dovospan. A Dovospan can contain between a few dozen to hundreds of star/planetary systems. Over time planets and systems drift, and even whole galaxies may merge. As such in non-hogenous regions this results in sectors hosting many jurisdictions
 
 Galaxy
 Destaspan
