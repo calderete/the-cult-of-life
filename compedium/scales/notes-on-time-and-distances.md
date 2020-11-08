@@ -28,15 +28,18 @@ _**Macro Format Description:**_ <br>
 **Deo-Meta-Hepta-Teka-Sor-Ad**
 
 #### Examples
-Deo-Meta-Hepta-Teka-Sor-Ad
+Deo-Meta-Teka-Ad
 
 24.345.687.230
 
 is:
 
-24th Deonox, 345th Metadex, 687th Tekadex, 230ths Adex
+24th Deonox, 345th Metadex, 687th Tekadex, 230th Adex **Adex 230 Edoch 345.678 of the 24th Deonoxium**
 shortened:
-24dx-345-678
+24dx-345678-230ad
+citation date
+after ':' is volume-index-chapter-page
+24.345.678.2sr:5-17-54-1009 << in the second Soral Cycle of current Edoch
 
 ### Distance
 
