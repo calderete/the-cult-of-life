@@ -14,6 +14,7 @@ Interum = 100 seconds<br>
 Setadex = 1,000 (16 minutes)<br>
 Interdex = 10,000(slightly less than 3 hours)<br>
 Caldex = 100,000(slightly less than 28 hours)<br>
+Kaydex = 30 Caldex
 
 **Ada-Kayd-Caldex**
 
@@ -34,19 +35,20 @@ Deo-Meta-Teka-Ad
 
 is:
 
-24th Deonox, 345th Metadex, 687th Tekadex, 230th Adex **Adex 230 Edoch 345.678 of the 24th Deonoxium**
+24th Deonox, 345th Metadex, 687th Tekadex, 230th Adex **Adex 230, Edoch 345.678 of the 24th Deonoxium**
 shortened:
 24dx-345678-230ad
 citation date
-after ':' is volume-index-chapter-page
-24.345.678.2sr:5-17-54-1009 << in the second Soral Cycle of current Edoch
+5-17-54-1009 << in the second Soral Cycle of current Edoch
 
 ### Distance
 
 Stardex is the distance light travels in an Adex<br>
-setch = inch equivalent<br>
-setta = 20 setch<br>
-tekudex = 100,000 setch (~a mile and a half) or 5000 setta<br>
+Setch = inch equivalent<br>
+Setta = 20 setch<br>
+Tekudex = 100,000 setch (~a mile and a half) or 5000 setta<br>
+Hatadex = 10,000 Tekudex
+Metradex = 1,000,000 Tekudex
 
 Nama-setch = 10th of a setch<br>
 seggeta = 100th of a setch<br>
