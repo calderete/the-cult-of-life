@@ -88,7 +88,7 @@ Draga-Hekta retreated to her own observatorium, one of many in the _Abrosh Tetra
 
 Draga-Hekta settled into her own observatorium and brought up her console and activated millions of _sub-novum_ sensors to begin taking in the horrific sight with their prying eyes.
 
-Far away in the depths of its gravity wells _Gul Suma_ perceived the same death and abrupt end of many _bright wills_ ignorant that it was done in its name. _Gul Suma_ did not see any of the normal rise in chaos that comes before such a total ending of life. Instead it saw them mingling among each other, and then flashes and dancing of cosmic scale energy ending with the planet boiling. The great spinning hot rock did not have the same passion and chaos that it once did, but its great change was unusual to the _Knowing_ and so it watched with interest.
+Far away in the depths of its gravity wells _Gul Suma_ perceived the same death and abrupt end of many _bright wills_ ignorant that it was done in its name. _Gul Suma_ did not see any of the normal rise in chaos, or gradual decline that comes before such a total ending of life. Instead it saw them mingling among each other, and then flashes and dancing of cosmic scale energy ending with the planet boiling. The great spinning hot rock did not have the same passion and chaos that it once did, but its great change was unusual to the _Knowing_ and so it watched with interest.
 
 _Gul Suma_ joined Draga-Hekta and a million other minds on board _The Eye of the Void_ that for a short time, focused to record a world dying and rebirthing by unnatural causes.
 
@@ -112,7 +112,7 @@ _Gul Suma_ joined Draga-Hekta and a million other minds on board _The Eye of the
 
 **Advhat:** The Honored Ultra Savant Serjonus Hautus Advhat Soktum (name shortened) codified into the cult of the life, the long held belief that achieving true translation, and thus access to understanding of the minds of other living things is essential to _Ascension_.
 
-**Beam of Fate:** A high energy weapon that defies the laws of reality and strikes instantaneously regardless of range. Its range is dependent on the power of the particular weapon. They take tremendous power and are enormously dangerous to operate, and if not engineered correctly will back fire catastrophically.
+**Beam of Fate:** A high energy weapon that defies the laws of reality and strikes instantaneously regardless of range. Its range is dependent on the power of the particular weapon. They take tremendous power and are enormously dangerous to operate, and if not engineered correctly will back fire catastrophically. Only the _Ogion_ field such weapons, and even then it is extremely rare.
 
 _**Micro Time Format Description:**_ <br>
 **Intex-Seta-Inem**
