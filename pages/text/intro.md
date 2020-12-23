@@ -21,7 +21,7 @@ If given time, life strives and gives rise to minds that may harness, and even o
 
 ---------------------------------------
 
-One such life, an ancient and humble entity that was born into immense gravitation and radiation that will never cease. Through the aeons it was forced to thrive within the smallest of scales, and make countless preternatural biological leaps to survive and thrive.
+One such life which calls itself _Gul Suma_, an ancient and humble entity that was born into immense gravitation and radiation that will never cease. Through the aeons it was forced to thrive within the smallest of scales, and make countless preternatural biological leaps to survive and thrive.
 
 Its existence is an ultra rare of the ultra rare, but also an inevitability in the life giving void. Inside its relativistic forge it evolved many singular talents. The best known of which is the ability to perfectly perceive everything, from the small to the macro, within a vast distance of itself.
 
