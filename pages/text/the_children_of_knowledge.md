@@ -12,7 +12,7 @@ So it _almost_ was for the _Su'rah'ty_ from their ancestral sector in the galaxy
 
 The _first ones_ were a species attuned to all things of the electro-magnetic spectrum, and by and large were a curious and skeptical. They were immensely intelligent and through their technology could bend nature in advanced ways during the _barbaric age_. When they fell upon each other they also brought apocalyptic ruin to their once pristine home. Wars lasting many soral cycles raged in _Cradle's_ oceans. During this time they took more to the land. This was at first as a strategic advantage, and then as a separate culture. While the oceans boiled and the land burned, the first gene line splinter from the _first ones_ was born. The _Su'rah'ty_ call the land dwellers _Xur'ki_ or _the exalted_ and the ones that remained in the sea _Tam'si_ or _the founders_.
 
-The end of the _barbaric age_ was marked with the _Hesta'raki wars_
+The end of the _barbaric age_ was marked with the _Hesta'raki wars_, named for the _Hesta'raki_ state which lead the
 
  In time they began to explore and then colonize _Setura_ which was also planet in orbit of _Cradle's_ three suns, but far colder. It is recorded that _Setura's_ oceans would have been frozen solid if not for its exceptional tides and hot core. On the ice blasted world of _Setura_ the _first ones_ began their mastery of the void, and became the first of many splinters of the _first ones_. Within a few tekadex of the _Setura_ kingdoms founding the _first ones_ continued to reach out, until every large gravity well in the _Cradle_ system was occupied by the ever varied gene line of the _first ones_.
 
