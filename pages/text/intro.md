@@ -1,7 +1,7 @@
 ## The cult of life
 
 **In the ultra distant future**
-**Adex 678, Edoch 998.778 of the 27th Deonoxium** (base 10)
+**Adex 678, Edoch 998.778 of the 57th Deonoxium** (base 10)
 
 _"After many adexi cycle I have started to feel, that the only thing is know, is that we do not at all know what will be"_ - Elite Executor Column Commander Taga'tai-Laray
 

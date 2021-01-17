@@ -2,7 +2,7 @@
 
 Current Assignment: Squadron commander on the Sevex-L class Gunship Carrier Goro-tac 4, Patrol Gunship 874-223 of hunter/scout squadron 147-653-HS
 
-Warrior strata Rank: Master Squadron commander 3rd class
+Warrior strata Rank: Able Squadron commander 3rd class
 
 Social strata Rank: Able warrior specialist 5th class
 
