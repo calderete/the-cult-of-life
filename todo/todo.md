@@ -6,3 +6,6 @@ The Erappa << in the deep _Erappa_ there are strong gene-matrices, they are made
 On Language
 War Dragon << the dragon takes discipline
 The _Ban Vara_ << Savior in the Void
+The Xi'ro'gradexa: Train to protect
+The Xi'ro'gradexa: Train to care
+The Xi'ro'gradexa: Train to hunt

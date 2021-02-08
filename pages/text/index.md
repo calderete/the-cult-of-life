@@ -17,6 +17,11 @@
 **Beam of Fate:** A high energy weapon that defies the laws of reality and strikes instantaneously regardless of range. Its range is dependent on the power of the particular weapon. They take tremendous power and are enormously dangerous to operate, and if not engineered correctly will back fire catastrophically. Only the _Ogion_ field such weapons, and even then it is extremely rare.
 
 _**Micro Time Format Description:**_ <br>
+1 adex = .959 years
+1 year = 8760 hours
+1 adex = 8400 hours
+1 hour = 3600 seconds
+
 **Intex-Seta-Inem**
 
 Imex = 1 second<br>
