@@ -1,16 +1,21 @@
-In the serene weightless darkness of her early life, at first Neta only had the songs of the _Vuri Cata_ to keep her company. At first the music was formless, the notes playing in her pod took only short term journeys, from consonance to dissonance to resolution, only occasionally quieting to silence. In the silence, her mind would wander and sleep, only for her to eventually again become aware of the harmonies and melodies of the music which would so gradually increase in volume, that Neta's mind often found itself following without even knowing which point was silence, and in which was melody.
+In the serene weightless darkness of her early life the songs of the _Vuri Cata_, made up Neta's world, the formless notes took her on short term journeys, from consonance to dissonance to resolution, and eventually fading to silence. When there was no music, her mind would wander and she would sleep, the melodies sometimes replaying her dreams, only for her to wake again to new combinations of notes and harmonies.
 
-The music was ever changing, and after a time, she began to hear different things with the music, they were sounds she knew even though she did not know how she knew the sounds. They were whispers of words that she would her in her dreams given to her from the _Vuri Cata_, she did not know what they meant...
+On and on this went, her growing mind content to travel wherever the changing music took her
 
-in which she could hear in her mind the names of things, and she would see those things in her mind as they were in the out side world, at first as abstract shapes and then sharper the more times the dream came to her, they told her the dreams were coming from the _Vuri Cata_.
+After an imperceptibly long time she began to hear different things within the music, she had been content for so long with the music in her pod, and now there was something new. As her mind focused on the new stimulus a word came into her mind _voices_.....
 
-She could feel her umbilicus going into her center and it was made of something hard but also soft and flexible but we she knew was not her, and the amniotic fluid and the smooth surface her pod and darkness, until one caldex (day)
+She found her mind repeating it "voices", what she was hearing is called _voices_. Unknown to her infant consciousness the music of the _Vuri Cata_ plays on many spectrums, and her phenomenal _sonovian_ mind had listened to all through the countless cycles of waking and sleeping. Embedded in the the compositions of of the _Vuri Cata_ were the concepts of words of symbolic language, and now she began to hear more _voices_ and _singing_ floating just behind the endlessly changing music in the dark.
 
-_Vuri Cata_, sometimes she would get the sense of large things moving in the mist, and as her sense of what her dream was showing her grew sharper, she could make out her pod was one among many and the brightness was from the many shiny surfaces. Large shadows cast from the same shiny buildings created her sense of large things lurking in the mist.
+As new compositions played for her, she learned more words which she also began to hear sung to her in her dreams. She learned the word _umbilicus_ when her growing arms and hands touched it in the center of her stomach, and _setsa pod_, and _Vuri Cata_ when they were long enough to touch the insides of her enclosure. She knew that she was inside the _setsa pod_, which was inside the _Vuri Cata_, and that she was safe and content.
 
-along with things she did not understand "...you are a hero...a _sonovia_ senses all...you will see stars soon...you are a miracle...this place is a miracle...". Mostly though, the dreams showed her mind things which efficiently absorbed the knowledge through a similar spectrum with which the dreams came to her. Once her forming mouth began to move, they told her she would be able to use that to speak one day as well.
 
-All the while they would occasionally whisper, usually something they had already said but sometimes they said something new.
+
+
+
+
+
+
+
 
 One of the first things the dreams whispered to her was that that the name of the thing that she felt moving around her was _E'repadie_, and that _her_ body would grow as a "..._prime-bi-pedal_ form...", with two arms, legs, eyes, and ears. In the dreams she would see herself emerging from her pod, her skin smooth, hairless and translucent pink, her elongated head dominated with very large eyes which were completely black with a shiny round mirrored pupil centered in the blackness. Below her eyes were her mouth and nose, through which she breathed, proportionally small compared to her eyes and head, her nose and mouth followed the _prime-bi-pedal_ form, in that her triangular nose had two nostrils and her mouth followed a symmetry of two.
 
