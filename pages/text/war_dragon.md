@@ -12,4 +12,4 @@ In many Languages, the word 'dragon' is a name for an apex creature, both real a
 
 The magnetic node auto-gun has earned the _Ogion_ informal name of 'War Dragon'.
 
-It is a weapon that deals death indiscriminately in the form of magnetically contained plasma bolts which explode in all-consuming flames (vaporizing fire) and extreme electric potential upon impact. Unless a target has relativistic shielding, or contra-therma armor the damage is lethal 
+It is a weapon that deals death indiscriminately in the form of magnetically contained plasma bolts which explode in all-consuming flames (vaporizing fire) and extreme electric potential upon impact. Unless a target has relativistic shielding, or contra-therma armor the damage is often lethal from even a glancing blow
