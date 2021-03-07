@@ -69,15 +69,7 @@ The _Xi'ro'gradexa_ serves the _Ogion_ guardianship by producing and fielding it
 
 
 
-The Gahn dojo:
 
-Staccato clangs rang out in a rising and failing pattern, echoing from the stone floor and columns of the Gahn dojo. In an open space of the _kototorium_ Neta face her tenth and final opponent. As she attacked and defended the clangs sounded faster, and then slower as she parried, blocked and repositioned for another assault or counter attack. She weilded two _rek si_, iron rods the length or her arms with one end sharpened, she was much under armed compared to her four armed opponent.
-
-He was a _Carvia'neoq_, and was powerfully built with four muscular legs giving it stability to wield immense strength and land crushing blows. He stood twice as tall as her and was clad in chrome armor with a mail mesh underneath. Each of his fists was gauntleted, in one he held a trident, in another a spear with a broad triangular head, and in his other two were long curved swords.
-
-As far as Neta could tell, they had fought to a stale mate.
-
-She moved fast and constantly performing the same leaps and spins she had durning her dance lessons long ago, but now powered by legs that could run around worlds. She counter his height by leaping above him and striking at him the air, but her blows slid sparking off of his armor without leaving a trace, and her stabs between his plate had caught harmlessly in the mesh. The fight had been going for several interum (interum = 100 seconds) and the _Carvia'neoq_ showed no signs of tiring.
 
 
 

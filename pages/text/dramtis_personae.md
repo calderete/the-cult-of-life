@@ -1,7 +1,7 @@
 Neta - Elite Ban Vara, Honored Envoy
 Thora Chinto - Neta's mother, Honored Mother of _Segetum Pri_
-Shem Poe Master Engineer
-Uxur'rodex Elite Engineer, Master of cage and conduit
+Shem Poe - Master Engineer
+Uxur'rodex - Elite Engineer, Master of cage and conduit.
 
 ### Xi'ro'gradexa Temple Voro Gata, E'repadie
 

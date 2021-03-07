@@ -30,7 +30,7 @@ The Commander is the executor
   - Galaxy Administrative Director
   - Sector Administrative Director
 
-  - Star System Governor (Governor of between 1 and 10 Star Systems)
+  - Star Governor (Governor of between 1 and 10 Star Systems)
   - Planetary Director
   - Sector Governor
   - Regional Director

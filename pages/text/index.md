@@ -70,3 +70,44 @@ citation date
 5-17-54-1009 << in the second Soral Cycle of current Edoch
 
 ===============================================
+
+## Ranks of the Plago Ocxidux
+
+Oracle: Architect
+
+Virtuosos: Engineer, Architect
+
+Maestro: Engineer, Architect
+
+Adroit: Engineer, Architect
+
+## Ranks of the Grid'os Uradda
+
+Oracle: Void Commander
+
+Virtuosos: Void Soldier, Void Commander
+
+Maestro: Void Soldier, Void Commander
+
+Adroit: Void Soldier, Void Commander
+
+## Ranks of the Exos Prima
+
+Oracle: Savant
+
+Virtuosos: Savant
+
+Maestro: Savant
+
+Adroit: Savant
+
+## Ranks of the Ogion Protectorate
+
+Regulus Cosm - coordinator of 2 - 10 galaxies, leads a principex council
+Principex Galactic - coordinator of all the governors dovos, leader of the Dovos council, member of the principex council
+Governor Dovos - Governor of a dovospan or region of a galaxy, member of the Dovos council
+Governor Serett - Governor of a sector
+Star Governor - Governor of a star system and its sphere of influence
+Planetary Governor - Governor of a planet and its moons
+
+===============================================
