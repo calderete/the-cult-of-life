@@ -3,7 +3,7 @@
 
 ### The Princess of War
 
-_"Whoever you are, there is place for you in the Xi'ro'gradexa"_ - unknown
+_"Whoever you are, there is place for you in the Grid'os Uradda"_ - unknown
 
 _"the sonovia are raised with care"_ - Hira-se slander
 
@@ -57,7 +57,7 @@ The Xerex new allies are getting closer, and I am certain that with the next orb
 
 
 
-"The _Eternal Alliance_ protects the worthy and it is the _Xi'ro'gradexa_ that raises the warriors that protect" said the statue's plaque, Neta Domiata was standing in front of the _Voro Gata_ temple on the moon _E'repadie_ which orbited the _Sonovian_ homeworld of _Daratia_.
+"The _Eternal Alliance_ protects the worthy and it is the _Grid'os Uradda_ that raises the warriors that protect" said the statue's plaque, Neta Domiata was standing in front of the _Voro Gata_ temple on the moon _E'repadie_ which orbited the _Sonovian_ homeworld of _Daratia_.
 
 "Iron is abundant and strong, "
 
@@ -65,7 +65,7 @@ The Xerex new allies are getting closer, and I am certain that with the next orb
 
 
 
-The _Xi'ro'gradexa_ serves the _Ogion_ guardianship by producing and fielding its warriors. Individuals are recruited and transcripted from all _race-lines_ within the _Eternal Alliance_.
+The _Grid'os Uradda_ serves the _Ogion_ guardianship by producing and fielding its warriors. Individuals are recruited and transcripted from all _race-lines_ within the _Eternal Alliance_.
 
 
 

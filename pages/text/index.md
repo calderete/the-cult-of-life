@@ -87,7 +87,7 @@ Oracle: Void Commander
 
 Virtuosos: Void Soldier, Void Commander
 
-Maestro: Void Soldier, Void Commander
+Maestro: Void Soldier, Void Commander, Game Moderate
 
 Adroit: Void Soldier, Void Commander
 
