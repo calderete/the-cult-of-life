@@ -35,6 +35,7 @@ Kaydex = 30 Caldex
 **Ada-Kayd-Caldex**
 
 Adex = 10 Kaydex/300 Caldex<br>
+Ketdex = 10 Adex (Ket Cycle)<br>
 Soradex = 100 Adex (Soral Cycle)<br>
 Tekadex 1,000 Adex (Teka Cycle)<br>
 Heptadex = 10,000 Adex (Heptagex Cycle)<br>

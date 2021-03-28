@@ -31,4 +31,17 @@ He had been told nothing since his selection, none of them had, and none of them
 "It has to do with the gifts you have been given...you have been given many gifts, yes?"
 "I have"
 
-_Drul'do's_ disk flung itself to the center of the temple "...you see she is a _sonovian_" he said gesturing back to the purple female as he addressed all of the selectees"...a miracle of engineering by the great gene weavers, the _Jin Mataratix_...she knows no fear and has the instincts of trillions of hunters in her black bones...but you know what _*heh heh*_...even she is going to struggle against my deka gauntlet today _*hehe*_...but she is going to do much better than the rest of you I am sure..._*hahahaha*_...Neta Domiata! Gather you training weapons and go down to the _kototorium_!!"
+_Drul'do's_ disk flung itself to the center of the temple "...you see my worth class she is a _sonovian_" he said gesturing back to the purple female as he addressed all of the selectees"...a miracle of engineering by the great gene weavers, the _Jin Mataratix_...she knows no fear and has the instincts of trillions of hunters in her black bones...but you know what _*heh heh*_...even she is going to struggle against my deka gauntlet today _*hehe*_...but she is going to do much better than the rest of you I am sure..._*hahahaha*_...Neta Domiata! Gather you training weapons and go down to the _kototorium_!!"
+
+
+
+
+
+
+
+
+
+
+
+
+_Drul'do_ "Come not to me if you need courage or strength, I train soldiers of the _cosmicae_!!, come to the Gahn dojo"

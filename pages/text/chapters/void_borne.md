@@ -1,0 +1,15 @@
+Shresta Void colony, the Gemi'holon galaxy
+
+The border systems of the _Erappa_
+
+As their shuttle thrusters fired to alter course, Getta'tai and Regma'tai were pushed hard into their seat. "You are going to fast...our orbit is too low....you're going to get fined again" Regma'tai complained to her mate and partner "hmpf..whatever" replied Getta'tai "I didn't want to get stuck behind that _Semlous_ freighter..." Regma didn't respond...in the 2 ketdex (~20 years) they had been soul bonded, the pair had made hundreds, perhaps even thousands of supply runs to the Shresta main depot. But the ritodex (~10 days) long journey was a test of any soul bonded mate's relationship. Like any void journey a cold death was as close as misjudgment or bad luck, tempers will flare in the shadow of fear and keeping a cool head was just a vital to survival as navigation and life support.
+
+Getta powered down the thrusters and their shuttle settled into its final path to intercept the giant orbital supply station of _Shresta Primatt_ which took the name of the gas giant that it orbited _Shresta_. _Shresta_ itself was a large, hot ball of gas with more than a hundred moons in the _Bara'tex_ star system. When the ancestors of Getta and Regma first floated to this world they knew it to be a special place. From the moons of Shresta could be mined limitless metals as well as liquids of water, ammonia, and nitrogen which were plentiful in ice form....everything a _chen gara_ (void borne) needed to thrive. The planet Shresta also blessed the void borne with its powerful magnetic field and radiation on which the _chen gara_ thrived.
+
+"We should be close enough to get the supply net signal..." Getta said, without responding Regma powered up the radio antennas and receivers, and downloaded the latest manifests from the logi guilds on the station... "They have everything we need it looks like" Regma said....although there did not seem to be any fresh _lemote_ fruit like she had hoped, she would make do like one does on the frontier.
+
+As had become their habit, once the radio was fully powered Getta sent a transmission to the landing towers of _Shresta Primatt_ "...Shresta tower this is shuttle _Setak'tai_ on apoapsis intercept, requesting berthing in supply guild..."
+
+_Shresta Primatt_ was a massive, ancient construct of steel and stone which had been orbited by the ancestors of Getta and Regma nearly five tekadex ago. When viewed from above in a higher orbit, it resembles a scalloped plate floating across the brown, red, and white clouds of Shresta below, or a shiny cookie floating in tea with cream. Viewed from below it appears as it is, a massive city floating in the stars with hundreds of towers reaching 20 or 30 tekudex (~30-45 miles) into space from the flat main station.
+
+The shuttle _Setak'tai_ approached from below. Hundreds of towers reached many tekudex (~miles) into space from the main station both above and below. At the end of the undertowers were mag anchors without which the course of the _Setak'tai_ would plunge it down into the crushing clouds of _Shresta_.
