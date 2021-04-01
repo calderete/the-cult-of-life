@@ -12,3 +12,4 @@ The Grid'os Uradda: Train to protect
 The Grid'os Uradda: Train to care
 The Grid'os Uradda: Train to hunt
 The Ogion Plago: Masters of cage and conduit
+The War Borne

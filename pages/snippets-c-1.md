@@ -33,3 +33,8 @@ Shotero's personal hud lit up with a text transmission. "FROM:<COM Flight Group>
 
 
 -----------------------------------------------------------
+
+
+_Shresta Primatt_ motto
+
+"Here this station floats, until the frontier breaks"
