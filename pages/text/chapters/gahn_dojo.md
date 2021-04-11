@@ -12,6 +12,14 @@ She changed her strategy by leaping above him and striking at him the air, but h
 
 Her objective was to defeat this opponent, his only vulnerable points she could see were his eyes, but she could not get within his swings to be in striking range of his head. A thought came to her from her real memory _most craft-masters need tools_. This _Carvia'neoq_ was a master of his tools, and she resolved to relieve him of them.
 
+--------------------------------------------------------
+
+She made another leaping attack but instead of moving fast to stay away she leapt again into his blindside, she summersaulted into an arch and straightened out at the apex with her head pointed down. As she fell from a height of 5 lirhetta (~5meters) and her opponent spun around to find her, his right upper arm with the spear moved into her path. As she approached his spear hand she brought her legs under her and he continued to turn, as his eyes found her it was to late. She kicked the haft of the spear deflecting it hard enough the _Carvia'neog's_ grip loosened and his weight shifted. Before he could regain his grip Neta struck his gauntleted hand with both her _rek si_. She struck with all of the strength in her body and her falling weight, the impact sent a flare of sparks bursting from his hand followed by a deafening roar from the _Carvia'neoq_ and the clanging of spear hitting the ground.
+
+As soon as Neta hit the ground she jumped again, and again until she had a clear shot from above the left side of his head. He looked up just in time to see the end of her _rek si_ falling down towards him, he brought his unarmed, mangled hand up to block her, but she easily kicked it away. She drove her left _rek si_ deep into his eye while her right struck against a sword he had managed to bring up to her.
+
+The _Carvia'neoq_ screams mixed with the sounds of falling steel, Neta held onto her impaling _rek si_ as he fell and as she stepped off of him, the body of the _Carvia'neoq_ vanished in flickering sliding light.
+
 
 --------------------------------------------------------
 

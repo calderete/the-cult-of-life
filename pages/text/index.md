@@ -16,6 +16,14 @@
 
 **Beam of Fate:** A high energy weapon that defies the laws of reality and strikes instantaneously regardless of range. Its range is dependent on the power of the particular weapon. They take tremendous power and are enormously dangerous to operate, and if not engineered correctly will back fire catastrophically. Only the _Ogion_ field such weapons, and even then it is extremely rare.
 
+### Data
+
+modifiers: meja, tema, rema
+
+(viq, blip, taq, b't)
+
+
+
 _**Micro Time Format Description:**_ <br>
 1 adex = .959 years
 1 year = 8760 hours
@@ -50,12 +58,16 @@ _**Macro Format Description:**_ <br>
 Stardex is the distance light travels in an Adex<br>
 Setch = inch equivalent<br>
 Setta = 20 setch<br>
+Qwexetta = 40 setch (~1 meter, 1 meter = ~39.4 setch)<br>
 Tekudex = 100,000 setch (~a mile and a half) or 5000 setta<br>
 Hatadex = 10,000 Tekudex<br>
 Metradex = 1,000,000 Tekudex
 
 Nama-setch = 10th of a setch<br>
-seggeta = 100th of a setch<br>
+Seggeta = 100th of a setch<br>
+Nama-seggata = 1000th of a setch<br>
+
+cabre: used for small circumferences
 
 #### Examples
 Deo-Meta-Teka-Ad
