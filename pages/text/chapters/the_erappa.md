@@ -11,8 +11,12 @@ First contact in the erappa is done through an envoy when possible
 
 ### Message to the Wildlands
 
-Oblivion is inevitable prepare for it
+Demos natural
+
+Oblivion is inevitable, prepare for it
 Only the living can choose their fate
+
+Demos unnatural
 
 Beware of dragons and demons
 Beware of myth and superstition

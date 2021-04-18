@@ -1,4 +1,24 @@
-"Bring up a gravitic scan of this system!....calibrate for course to there...they've run into a dead end....we've got'em" Ray'heta enhanced voice commanded while highlighting the areas he spoke of on his navigation console. Their quarry had made a second mistake (the first being to flee in the direction of the core sector) and now Ray'heta knew exactly where they had to translate into real space next. The _Neris Light_ had been chasing a rogue corsair frigate suspected of piracy for almost two ritodex (~20 days) from jump to jump, system to system. The rogue must have something very valuable Ray'heta suspected. It had been making jumps franticly even before the corsair detected they were being tracked by the _Neris Light_.
+Galaxy: Gemi'holon
+Sector: Ter'tai'deroga (erappa)
+Sector: Heg Juter (Ogion Protectorate)
+
+_open space in between the border systems of the sector (Ter'tai'deroga - Heg Juter)_
+
+
+"Bring up a gravitic scan of this system!....calibrate for course to there...they've run into a dead end....we've got'em" Ray'heta enhanced voice commanded while he highlighted the areas he spoke of on his navigation console. Their quarry had made a second mistake (the first being to flee in the direction of the core sector and crossing the protectorate frontier) and now Ray'heta knew exactly where they had to translate into real space next. The _Neris Light_ had been chasing a rogue corsair frigate suspected of piracy for almost two ritodex (~20 days). They had chased the pirate from jump to jump, system to system, the superior range of the _Neris Light_ taking them ever closer to their prey.
+
+"The rogue must have something very valuable..." _Argo'mat_ the second adjutant of Ray'heta's command cartel said echoing his own thoughts earlier. "...she jumps so franticly...burning up her engines...she waits barely a caldex and a half before jumping again...must be a pot of jewels at the end of her rainbow..."
+
+"she dances well between the planets...." could be herd from the crew
+
+"Don't you think the _Neris light_ and her plasma cannons are a much better reason for them to run like a salted _Jer'pi_??" _Ahm'gata_, Ray'heta's third adjutant offered. "...if you think that rusted can of piss detected us any closer than eight stardex than you must not have put on your space-man shoes today..." _Ahm'gata_ got some chuckles came from the crew with his retort..._Argo'mat_, not chuckling, replied "...forgive me brother, I lack your experience..."
+
+Ray'heta clapped softly, interrupting his cartel "well....young Argo'mat knows humility...if not the specifications of every bit of scrap and rabble that flies out of the erappa..."
+
+"Where do we intend to corner them?" _Un'drema_ The cartel's first and best adjutant asked of the captain.
+
+
+-------------------------------------------------------------------------------------------------------------------------
 
 Of the many things Ray'heta was commissioned for one the most profitable was the ancient profession of pirate hunting. Ray'heta had no illusions that the protectorate saw little difference between a privateer and a rouge and it was for this reason that privateers like himself were remunerated well for hunting their kin.
 
@@ -20,17 +40,26 @@ Zemo never liked this world..._Nexi_ it was called. Things had always been odd a
 
 The people here called them selves the _Dereese_ and they said it was not always like this, they said the strangeness started around 20 adex (~years) ago...their scientists and researchers had never been able to solve the mystery, and instead they coped...and built their tech to be as stable as it could. Zemo also found the people here odd...and he had wondered if that had not always been as well.
 
-All of that oddness could not explain their behavior now...they had locked down that city in which Zemo's ship had landed, the captain had ordered all hands back to prep to flee if needed...regardless of items unsold which he ordered left on the landing deck. Some rookie corsairs might think the captain dumb or cowardly...to them he would say, if he cared to say it, "that is the only way a rogue corsair could live as long as the captain...and being prepared to run lightly in space is always wise..."...if he cared to say it.
+All of that oddness could not explain their behavior now...they had locked down that city in which Zemo's ship the _Sera Freedom_ had landed, the captain had ordered all hands back to prep to flee if needed...regardless of items unsold which he ordered left on the landing deck. Some rookie corsairs might think the captain dumb or cowardly...to them he would say, if he cared to say it, "that is the only way a rogue corsair could live as long as the captain...and being prepared to run lightly in space is always wise..."...if he cared to say it.
 
-On the bridge they watched their sensor monitors as the _Dereese_ fleet massed above their homeworld, the captain ordered Zemo to tap into the surveillance feeds and find out what has happening. Zemo went to his station and worked quickly, the _Dereese_ did not have a mind for security and he hacked their surveillance network with ease. "I'm through" Zemo said through his translator "look in the western continents..." the captain ordered. Zemo started going through feeds...they were not organized in any way many were dead static...some were of warehouses, some on streets...all seemed normal. Zemo cycled through hundreds of feeds...warehouse after warehouse...some common areas, and more dead signals. At almost his two hundredth feed reconnect Zemo saw something strange, it was a feed from a tower overlooking a market area, uniformed soldiers were herding the shopping crowd and clearing the market. "captain, you should see this" as the captain walked over the wail of sirens from outside began building and reached its crescendo when the captain looked over Zemo's shoulder to see what the found.
+On the bridge they watched their sensor monitors as the _Dereese_ fleet massed above their homeworld, the captain ordered Zemo to tap into the surveillance feeds and find out what has happening. Zemo went to his station and worked quickly, the _Dereese_ did not have a mind for security and he hacked their surveillance network with ease. "I'm through" Zemo said through his translator "look in the western continents..." the captain ordered.
 
-Down one of the streets that the soldiers were herding the citizens into, a commotion broke out. At the end of the street a pink mist rose and panic became visible as it moved through the crowd in the street and then into the soldiers, a commander could be seen organizing them into a line. After a few seconds Zemo and the captain realized what the pink mist was. "FULL POWER TO THE ENGINES NOW!! We take off NOW!!" the captain roared.
+Zemo started going through feeds...they were not organized in any way many were dead static...some were of warehouses, some on streets...all seemed normal. Zemo cycled through hundreds of feeds...warehouse after warehouse...some common areas, and more dead signals. At almost his two hundredth feed reconnect Zemo saw something strange, the feed was from a tower overlooking a market area, uniformed soldiers were herding the shopping crowd and clearing the market. "captain, you should see this" as the captain walked over the wail of sirens from outside began building and reached its crescendo when the captain looked over Zemo's shoulder to see what the found.
 
-Zemo couldn't believe what he was seeing. The mist spilled into the street, horrified and screaming _Dereese_ disappearing into it, sometimes Zemo thought he could see them being pulled in or lifted slightly just before vanishing, their faces going from horror to mortal pain. As it got closer the mist seemed to contain glints of metal that appeared and disappeared, behind the mist was a scene of bloody slaughter.
+At the end of one of the streets that the soldiers were herding the citizens into, a panic broke out. A pink mist rose and the panic became a  visible wave as it moved through the crowd. In the center street and then into the soldiers, a commander could be seen organizing them into a line. After a few seconds the captain had seen enough. "FULL POWER TO THE ENGINES NOW!! take off NOW!!" the captain roared, everyone obeyed quickly and wordlessly as the fusion powered hyper thrusters spun up. Strapped in at his station Zemo watched on unbelievably.
+
+As the mist spilled into the street, horrified and screaming _Dereese_ disappearing into it. Sometimes Zemo thought he could see them being pulled in or lifted slightly just before vanishing, their faces going from horror to mortal pain. As it got closer the mist seemed to contain glints of metal that appeared and disappeared, behind the mist was a scene of bloody slaughter.
+
+It was total carnage, _Dereese_ body parts and pink blood were everywhere, the stone street drained away the blood forming reverse tributaries of a river fed by piles of death. Sometimes the blood appeared to dance in time with flickers before splashing or failing like sticky rain.
+
+Something was tearing the _Dereese_ to pieces and leaving no survivors. "I think something invisible is out there" Zemo said, as the thrusters fired and Zemo was pushed into his seat, even . "Derehm help us"
+
+The cockpit of the _Sera Freedom_ lit up in blinding white ""
+
 
 ------------------------------------------------------------
 
 
-Ray had a custom body he had commissioned from a gene weaver. He was in a bipedal form with four arms and an elongated head with four eyes. They had ordered their body adapted to their exo suit and almost all that knew Ray, knew his face as the mirrored face shield on his helmet.
+Ray'heta Hy'tetra had a custom body he had commissioned from a gene weaver. He was in a bipedal form with four arms and an elongated head with four eyes. They had ordered their body adapted to their exo suit. Nearly everyone that knew Ray, knew their face as but a mirror on his long oval helmet.
 
-He had been born as a male, and would sometimes still refer to themselves as such, but the body they inhabited now, was both male and female and had special....almost forbidden _Genex extriatia_ organs which could assimilate alien genetic material.
+He had been born as a male, and would sometimes still refer to themselves as such, but the body they inhabited now, was both male and female, and had special....almost forbidden _Genex extriatia_ organs which could assimilate alien genetic material.

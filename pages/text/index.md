@@ -58,7 +58,7 @@ _**Macro Format Description:**_ <br>
 Stardex is the distance light travels in an Adex<br>
 Setch = inch equivalent<br>
 Setta = 20 setch<br>
-Qwexetta = 40 setch (~1 meter, 1 meter = ~39.4 setch)<br>
+Lirhetta = 40 setch (~1 meter, 1 meter = ~39.4 setch)<br>
 Tekudex = 100,000 setch (~a mile and a half) or 5000 setta<br>
 Hatadex = 10,000 Tekudex<br>
 Metradex = 1,000,000 Tekudex
