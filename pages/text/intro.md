@@ -3,7 +3,7 @@
 **In the ultra distant future**
 **Adex 678, Edoch 998.778 of the 57th Deonoxium** (base 10)
 
-_"After many adexi cycle I have started to feel, that the only thing is know, is that we do not at all know what will be"_ - Elite Executor Column Commander Taga'tai-Laray
+_"After many cycles I have started to feel, that the only thing that is know, is that we do not at all know what will be"_ - Elite Executor Column Commander Taga'tai-Laray
 
 _"When a civilization presents the 'Advhat Appearance' of ascension, either achieved through universal communicators, or through evolution......they will face a turning point, into idyllic unity....or the hells of despotism"_ - Honored Ultra Savant, Lorato-vak
 

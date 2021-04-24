@@ -10,6 +10,8 @@ They strike when called
 
 --------------------
 
+The Chronicle of the Hyper-Kon, book 13, chapter 1, verse 1
+
 _Lat'rel brought fire to the Dread Ones
 The hero of Ya'tacu plucked them from the sky
 Lat'rel pointed to Godorix the butcher
@@ -19,7 +21,7 @@ Lat'rel sent him to his gods
 Dread Knights know not surrender
 Dread Knights know only blood and fire
 
-Lat'rel gave them blood and fire_ - translated from Hyper-Kon, poet of the Eglise'es
+Lat'rel gave them blood and fire_ - translated from the Hyper-Kon, by Vetaxa poet of the Eglise'es
 
 --------------------
 

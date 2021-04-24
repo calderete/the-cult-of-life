@@ -1,3 +1,4 @@
+Draga Hekta        - Maestro Savant of Life
 Neta Domiata       - Elite Ban Vara, Honored Envoy
 Thora Chinto       - Neta's mother (assigned care taker), Honored Mother of _Segetum Pri_
 Shem Poe           - maestro Engineer

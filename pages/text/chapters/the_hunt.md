@@ -5,18 +5,21 @@ Sector: Heg Juter (Ogion Protectorate)
 _open space in between the border systems of the sector (Ter'tai'deroga - Heg Juter)_
 
 
-"Bring up a gravitic scan of this system!....calibrate for course to there...they've run into a dead end....we've got'em" Ray'heta enhanced voice commanded while he highlighted the areas he spoke of on his navigation console. Their quarry had made a second mistake (the first being to flee in the direction of the core sector and crossing the protectorate frontier) and now Ray'heta knew exactly where they had to translate into real space next. The _Neris Light_ had been chasing a rogue corsair frigate suspected of piracy for almost two ritodex (~20 days). They had chased the pirate from jump to jump, system to system, the superior range of the _Neris Light_ taking them ever closer to their prey.
+"Bring up a gravitic scan of this system!....calibrate for course to there...they've run into a bottle neck....we've got'em!" Ray'heta's enhanced voice issued from her/his oval mirror helmet while he highlighted the areas he spoke of on his navigation console with her upper arms, while their lower ones danced across the controls. Combat was expected this day, and he had donned void black armor plate which clinked mutedly under their crimson and gold trim cloak while he worked. Ray'heta had christened the ornate cloak the 'admirals cloak'. (mostly, only admirals can find gravity wells to make use of cloaks)
 
-"The rogue must have something very valuable..." _Argo'mat_ the second adjutant of Ray'heta's command cartel said echoing his own thoughts earlier. "...she jumps so franticly...burning up her engines...she waits barely a caldex and a half before jumping again...must be a pot of jewels at the end of her rainbow..."
+Their quarry - a rogue corsair frigate suspected of piracy - had made a second mistake. (the first being to flee in the direction of the core sector and crossing the protectorate frontier) and now free void-admiral Ray'heta Hy'tetra (septra'not) knew exactly where they had to translate into real space next. "It's taken two ritodex (~22 days) for us to run you down" the void-admiral said, giving their thoughts free voice to the blinking dot representing the rouge on the command console displays. "but the _Neris light_ and her attendants can jump farther..."
 
-"she dances well between the planets...." could be herd from the crew
+"The rogue must have something very valuable..." _Argo'mat_ (dedextra'not) the second adjutant of Ray'heta's command cartel said, echoing his/her own thoughts earlier. "...she jumps so franticly...burning up her engines...she waits barely a caldex and a half before jumping again...must be a pot of jewels at the end of her rainbow..."
 
-"Don't you think the _Neris light_ and her plasma cannons are a much better reason for them to run like a salted _Jer'pi_??" _Ahm'gata_, Ray'heta's third adjutant offered. "...if you think that rusted can of piss detected us any closer than eight stardex than you must not have put on your space-man shoes today..." _Ahm'gata_ got some chuckles came from the crew with his retort..._Argo'mat_, not chuckling, replied "...forgive me brother, I lack your experience..."
+"she dances well between the planets...." could be herd from the crew below the bridge in the instrument pits.
 
-Ray'heta clapped softly, interrupting his cartel "well....young Argo'mat knows humility...if not the specifications of every bit of scrap and rabble that flies out of the erappa..."
+"Don't you think the _Neris light_ (Heavy cosmic class cruiser) and her plasma cannons are a much better reason for them to run like a salted _Jer'pi_ ??" _Ahm'gata_ (septra'not), Ray'heta's third adjutant offered. "...if you think that rusted can of piss detected us any closer than eight stardex than you must not have put on your space-shoes right today!..." _Ahm'gata_ got some chuckles from the crew with his retort..._Argo'mat_, not chuckling, replied "...forgive me brother, I lack your experience..."
 
-"Where do we intend to corner them?" _Un'drema_ The cartel's first and best adjutant asked of the captain.
+The crew was losing focus thought Ray'heta, he interrupted saying to the command cartel "so what if young Argo'mat does not the specifications of every bit of scrap and rabble that flies out of the erappa...we have our paydirt to think of command crew."
 
+"Where do we intend to corner them?" asked _Un'drema_ (regusum'vaft) The cartel's first and adjutant, proving once again in the void-admirals mind why she is also the best.
+
+Smiling, even though know one could see, it was plain in the the void-admiral's voice they intoned "Yesss. The important things, here" while pointing to a newly summoned view of an orange and gold gas giant. 
 
 -------------------------------------------------------------------------------------------------------------------------
 
@@ -42,17 +45,19 @@ The people here called them selves the _Dereese_ and they said it was not always
 
 All of that oddness could not explain their behavior now...they had locked down that city in which Zemo's ship the _Sera Freedom_ had landed, the captain had ordered all hands back to prep to flee if needed...regardless of items unsold which he ordered left on the landing deck. Some rookie corsairs might think the captain dumb or cowardly...to them he would say, if he cared to say it, "that is the only way a rogue corsair could live as long as the captain...and being prepared to run lightly in space is always wise..."...if he cared to say it.
 
-On the bridge they watched their sensor monitors as the _Dereese_ fleet massed above their homeworld, the captain ordered Zemo to tap into the surveillance feeds and find out what has happening. Zemo went to his station and worked quickly, the _Dereese_ did not have a mind for security and he hacked their surveillance network with ease. "I'm through" Zemo said through his translator "look in the western continents..." the captain ordered.
+On the bridge they watched their sensor monitors as the _Dereese_ fleet massed above their homeworld, the captain ordered Zemo to tap into the surveillance feeds and find out what has happening. Zemo went to his station and worked quickly, the _Dereese_ did not have a mind for security and he was able to assume an trusted identity with ease. "I'm through" Zemo said through his translator "look in the western continents..." the captain ordered.
 
-Zemo started going through feeds...they were not organized in any way many were dead static...some were of warehouses, some on streets...all seemed normal. Zemo cycled through hundreds of feeds...warehouse after warehouse...some common areas, and more dead signals. At almost his two hundredth feed reconnect Zemo saw something strange, the feed was from a tower overlooking a market area, uniformed soldiers were herding the shopping crowd and clearing the market. "captain, you should see this" as the captain walked over the wail of sirens from outside began building and reached its crescendo when the captain looked over Zemo's shoulder to see what the found.
+Zemo started going through feeds...they were not organized in any way many were dead static...some were of warehouses, some on streets. Zemo cycled through hundreds of feeds...warehouse after warehouse...some common areas, and more dead signals. At almost his two hundredth feed reconnect Zemo saw something strange, the feed was from a tower overlooking a market area, uniformed soldiers were herding the shopping crowd and clearing the market. "captain, you should see this" as the captain walked over the wail of sirens from outside began building and reached its crescendo when the captain looked over Zemo's shoulder to see what the found.
 
-At the end of one of the streets that the soldiers were herding the citizens into, a panic broke out. A pink mist rose and the panic became a  visible wave as it moved through the crowd. In the center street and then into the soldiers, a commander could be seen organizing them into a line. After a few seconds the captain had seen enough. "FULL POWER TO THE ENGINES NOW!! take off NOW!!" the captain roared, everyone obeyed quickly and wordlessly as the fusion powered hyper thrusters spun up. Strapped in at his station Zemo watched on unbelievably.
+At the end of one of the streets that the soldiers were herding the citizens into, a panic broke out, Zemo could hear desperate screams through the audio feed while at the end of the street what looked like a fine pink mist began roiling into the crowed. Zemo watched as the panic became a visible wave moving through the crowd until the street was a surge of _Dereese_ running for their life.
 
-As the mist spilled into the street, horrified and screaming _Dereese_ disappearing into it. Sometimes Zemo thought he could see them being pulled in or lifted slightly just before vanishing, their faces going from horror to mortal pain. As it got closer the mist seemed to contain glints of metal that appeared and disappeared, behind the mist was a scene of bloody slaughter.
+After a few seconds the captain had seen enough and roared "FULL POWER TO THE ENGINES NOW!! take off NOW!!", everyone obeyed quickly and wordlessly as the fusion powered hyper thrusters spun up. Strapped in at his station Zemo watched on unbelievably.
 
-It was total carnage, _Dereese_ body parts and pink blood were everywhere, the stone street drained away the blood forming reverse tributaries of a river fed by piles of death. Sometimes the blood appeared to dance in time with flickers before splashing or failing like sticky rain.
+The mist continued its wispy march into the street while horrified and screaming _Dereese_ found themselves pulled into it, their faces going from horror to mortal pain. As the mist front got closer Zemo it unveiled a scene of bloody slaughter behind it.
 
-Something was tearing the _Dereese_ to pieces and leaving no survivors. "I think something invisible is out there" Zemo said, as the thrusters fired and Zemo was pushed into his seat, even . "Derehm help us"
+It was total carnage, _Dereese_ body parts and pink blood were everywhere, the stone street drained away the blood forming reverse tributaries fed by piles of death. As Zemo's mind began to grasp what he was seeing, he though he could see blood jumping and dancing in time with shiny flickers before falling like sticky rain. Something was tearing the _Dereese_ to pieces and leaving no survivors.
+
+"I think something invisible is out there" Zemo said, as the thrusters power up and Zemo was pushed into his seat, he felt the need to say. "Derehm help us"
 
 The cockpit of the _Sera Freedom_ lit up in blinding white ""
 

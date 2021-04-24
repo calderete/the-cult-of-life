@@ -10,7 +10,7 @@
 
 **Gul Suma:** Other names for Gul Suma: _The Knowing_, _Knowing_, _The All Knowing_,....and many variations which are further listed in the _Store Accadatuas+_ data vaults. Many names are translated names of mythological gods.
 
-**Store Accadatuas:** The _Cult of Knowledge_ maintains the massive data library known as the _Store Accadatuas_ which is charged with persisting all possible knowledge gathered by the ascendant cults. The _Store Accadatuas+_ is often referenced in citations, such as: "CA-C: Nokchta-Roko, 5-17-54-1009"
+**Stor Accadatuas:** The _Cult of Knowledge_ maintains the massive data library known as the _Store Accadatuas_ which is charged with persisting all possible knowledge gathered by the ascendant cults. The _Store Accadatuas+_ is often referenced in citations, such as: "CA-C: Nokchta-Roko, 5-17-54-1009"
 
 **Advhat:** The Honored Ultra Savant Serjonus Hautus Advhat Soktum (name shortened) codified into the cult of the life, the long held belief that achieving true translation, and thus access to understanding of the minds of other living things is essential to _Ascension_.
 
@@ -24,7 +24,7 @@ modifiers: meja, tema, rema
 
 
 
-_**Micro Time Format Description:**_ <br>
+_**Micro Time Format Description:**_<br>
 1 adex = .959 years
 1 year = 8760 hours
 1 adex = 8400 hours
@@ -32,13 +32,13 @@ _**Micro Time Format Description:**_ <br>
 
 **Intex-Seta-Inem**
 
-Imex = 1 second<br>
-Interum = 100 seconds<br>
-Setadex = 1,000 (16 minutes)<br>
-Interdex = 10,000(slightly less than 3 hours)<br>
-Caldex = 100,000(slightly less than 28 hours)<br>
-Ritodex = 10 Caldex
-Kaydex = 30 Caldex
+imex = 1 second<br>
+interum = 100 seconds<br>
+setadex = 1,000 (16 minutes)<br>
+interdex = 10,000(slightly less than 3 hours)<br>
+caldex(cal cycle) = 100,000 imex(slightly less than 28 hours)<br>
+ritodex = 10 caldex
+kaydex = 30 caldex
 
 **Ada-Kayd-Caldex**
 
@@ -46,7 +46,7 @@ Adex = 10 Kaydex/300 Caldex<br>
 Ketdex = 10 Adex (Ket Cycle)<br>
 Soradex = 100 Adex (Soral Cycle)<br>
 Tekadex 1,000 Adex (Teka Cycle)<br>
-Heptadex = 10,000 Adex (Heptagex Cycle)<br>
+Heptadex = 10,000 Adex (Heptalogos Cycle)<br>
 Metadex = 1,000,000 Adex (Metalogos Cycle)<br>
 Deonox = 1,000,000,000 Adex (Deonoxium Cycle)<br>
 

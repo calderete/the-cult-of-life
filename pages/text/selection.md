@@ -13,4 +13,4 @@ _"do not let your minds defeat themselves, whoever you are, there is a place for
 
 The Or'sato Greda are the military trainers of the Ogion protectorate. The main fighting force of the Protectorate
 
-"...you can join us and battle space dragons and survive the universe for as long as you can....or stay on this planet, and pass into oblivion with it, like planets always do" - Hum'rego Yath, Selet'ecati for the Eternal Protectorate
+"You can join us and battle space dragons and survive the universe for as long as you can....or stay on this planet, and pass into oblivion with it, like planets always do" - Hum'rego Yath, Selet'ecati for the Eternal Protectorate

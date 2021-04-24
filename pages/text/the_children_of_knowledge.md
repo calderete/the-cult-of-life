@@ -1,6 +1,6 @@
 ## The Cult of Life
 
-_"We have conquered matriarchs and patriarchs vast and terrible. The **Children of Knowledge** are exceptional"_ Ar'kalgo'ki, _Hira-se_ Greater General.
+_"We have conquered hegemonies vast and terrible. The Children of Knowledge are exceptionally vast and terrible"_ Ar'kalgo'ki, _Hira-se_ Greater General.
 
 ### Chapter 1
 
