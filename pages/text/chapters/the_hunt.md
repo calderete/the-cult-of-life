@@ -9,9 +9,9 @@ _open space in between the border systems of the sector (Ter'tai'deroga - Heg Ju
 
 Their quarry - a rogue corsair frigate suspected of piracy - had made a second mistake. (the first being to flee in the direction of the core sector and crossing the protectorate frontier) and now free void-admiral Ray'heta Hy'tetra (septra'not) knew exactly where they had to translate into real space next. "It's taken two ritodex (~22 days) for us to run you down" the void-admiral said, giving their thoughts free voice to the blinking dot representing the rouge on the command console displays. "but the _Neris light_ and her attendants can jump farther..."
 
-"The rogue must have something very valuable..." _Argo'mat_ (dedextra'not) the second adjutant of Ray'heta's command cartel said, echoing his/her own thoughts earlier. "...she jumps so franticly...burning up her engines...she waits barely a caldex and a half before jumping again...must be a pot of jewels at the end of her rainbow..."
+  "The rogue must have something very valuable..." _Argo'mat_ (dedextra'not) the second adjutant of Ray'heta's command cartel said, echoing his/her own thoughts earlier. "...she jumps so franticly...burning up her engines...she waits barely a caldex and a half before jumping again...must be a pot of jewels at the end of her rainbow..."
 
-"she dances well between the planets...." could be herd from the crew below the bridge in the instrument pits.
+"she dances well between the planets...." could be heard from the crew below the bridge in the instrument pits.
 
 "Don't you think the _Neris light_ (Heavy cosmic class cruiser) and her plasma cannons are a much better reason for them to run like a salted _Jer'pi_ ??" _Ahm'gata_ (septra'not), Ray'heta's third adjutant offered. "...if you think that rusted can of piss detected us any closer than eight stardex than you must not have put on your space-shoes right today!..." _Ahm'gata_ got some chuckles from the crew with his retort..._Argo'mat_, not chuckling, replied "...forgive me brother, I lack your experience..."
 
@@ -19,7 +19,7 @@ The crew was losing focus thought Ray'heta, he interrupted saying to the command
 
 "Where do we intend to corner them?" asked _Un'drema_ (regusum'vaft) The cartel's first and adjutant, proving once again in the void-admirals mind why she is also the best.
 
-Smiling, even though know one could see, it was plain in the the void-admiral's voice they intoned "Yesss. The important things, here" while pointing to a newly summoned view of an orange and gold gas giant. 
+Smiling, even though know one could see, it was plain in the the void-admiral's voice they intoned "Yesss. The important things, here" while pointing to a newly summoned view of an orange and gold gas giant.
 
 -------------------------------------------------------------------------------------------------------------------------
 
