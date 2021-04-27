@@ -82,6 +82,10 @@ shortened:
 citation date
 5-17-54-1009 << in the second Soral Cycle of current Edoch
 
+### Weights
+
+kest = ~ 1/2 pound
+
 ===============================================
 
 ## Ranks of the Plago Ocxidux
