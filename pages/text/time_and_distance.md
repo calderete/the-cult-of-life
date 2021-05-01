@@ -86,6 +86,8 @@ citation date
 
 kest = ~ 1/2 pound
 
+Hetter = 1/4 g
+
 ===============================================
 
 ## Ranks of the Plago Ocxidux
