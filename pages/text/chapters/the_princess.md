@@ -10,7 +10,7 @@ As new compositions played for her, she learned more words which she also began 
 
 Neta's small growing mind was content knowing that she was inside the _setsa pod_, which was inside the _Vuri Cata_, and that she was safe.
 
-As time went and her body and senses grew, she began to hear with more than just her two ears, her _psoto oculus_ or "minds ear" - an organ that descended from ears that could "listen" for light traveling on the radio spectrum - was growing and its sensations were becoming more discernible to her. Her pre mature _psoto oculus_ had been the vector through which the music of the _Vuri Cata_ had given her the concepts of words and language, and as she heard clearer with it, she learned of more ideas and _Sonovian_ sensations.
+As time went and her body and senses grew, she began to hear with more than just her two ears, her _psoto oculus_ or "minds ear" —an organ that descended from ears that could "listen" for light traveling on the radio spectrum— was growing and its sensations were becoming more discernible to her. Her pre mature _psoto oculus_ had been the vector through which the music of the _Vuri Cata_ had given her the concepts of words and language, and as she heard clearer with it, she learned of more ideas and _Sonovian_ sensations.
 
 And then one day she awoke, and it was no longer dark.
 

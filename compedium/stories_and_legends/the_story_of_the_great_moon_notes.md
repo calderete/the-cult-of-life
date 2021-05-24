@@ -1,4 +1,4 @@
-_"you do not remove the teeth of time by becoming immortal, you just level the playing field"_ - unknown
+_"you do not remove the teeth of time by becoming immortal, you just level the playing field"_ - Draga Hekta
 
 As promised the God King had come, and his armada blotted out the stars. The treacherous Nox'nol'giga had allied themselves with the Xerex, and the Nol-corsairs - errant knights of the Nox'nol'giga fulled by greed and fear of the God King, they had infiltrated the eternal sisters, and when the time was right, they struck. For many metadex (1,000,000 adex: ~year) the Etedax had called on the Eternal Sisters and the massive relativistic cannons mounted in the cores and surfaces of the four moons. Each moon had four cannons, each group and each individual cannon had unique names, and records kept of their use in defense of the heart of the Etadex. One side of each moon, was the exit side, the barrel extended
 

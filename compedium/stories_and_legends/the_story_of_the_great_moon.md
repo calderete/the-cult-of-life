@@ -1,4 +1,4 @@
-_"...when the guardian speaks to the enemies of the Etadex...fire ignites the sky...and reality quakes"_ - Eoria'tai Dep'me, Vassal-citizen of the Etadex
+_"...when the guardian speaks to the enemies of the Etadex...fire ignites the sky...and reality quakes"_ - Eoria'ree Det'yem, Vassal-citizen of the Etadex
 
 The great moon, was once a living guardian of a people called the Etadex, it shared the same orbit with three other moons around the Etadex home world, which they named Drexas-Primus. At that time the great moon was called Ogo'dredex, and its sisters were named Lat'dredex, Bran'dred, and Crep'dred. For 80 million adex (~year) they orbited Drexas-Primus through peace and war, and whenever the horrors of the void descended on the heart of the Etadex, it was the eternal sisters that threw them back into the deep night.
 
