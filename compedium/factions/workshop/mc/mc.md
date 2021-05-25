@@ -92,18 +92,18 @@ At least it's easy to tell friend from foe. Prix's eyes caught a spiny shadow mo
 Dixo: "copy"
 _pfump pfump pfump brapp brapp_
 
-The muffled reports of the trooper's mag bolters mixed with the sharp bangs of the exploding bolts as they fired into a pouring swarm coming from the low rocks. That's 20..21..22 dead swarmers. Gotta remember to keep an eye on the rocks above...I can't see anything with all that interference. After what she estimated was at least 60 swarmers getting gunned down the din of gunfire abruptly stopped. The attack seems over.
+The muffled reports of the exa'legionate's mag bolters mixed with the sharp bangs of the exploding bolts as they fired into a pouring swarm coming from the low rocks. That's 20..21..22 dead swarmers. Gotta remember to keep an eye on the rocks above...I can't see anything with all that interference. After what she estimated was at least 60 swarmers getting gunned down the din of gunfire abruptly stopped. The attack seems over.
 
 "Squad hettra I see all vitals good, please confirm" All 14 green dots lit up in the lower right corner of her HUD. "Command we are all clear" Commander Ter Hemner should be pleased at our efficiency?
 
 Not by his tone....
 Hemner: "AIRBORNE INCOMING!"
 
- _CRAAACK_ She couldn't tell which other support trooper fired the heavy bolter shot, but she followed its victim's fall backwards to the rest of the incoming airborne swarm. In a single movement she swung her heavy bolter up to sight and meet the incoming razor talons and spines with wings. _CRAAACK_ she put her bolt dead center through the nerve stem of one bug, and it tumbled forwarded and into the grey dust of the ground. _CRAACK_.._CRAACK_ two more down. Trooper mag bolters —sounding like small puffs compared to her long range rifle— joined into taking down the flyers. Seemingly syncronized with the flyers, ground swarmers charged out from the rocks and over the bodies of the bug soldiers that had attacked before. _BOOOMM_ _BOOOMM_ _BOOOMM_ Grenades drowned out the rest of the battle fire, and demolish the last flailing attack from the bugs.
+ _CRAAACK_ She couldn't tell which other support exa'legionate fired the heavy bolter shot, but she followed its victim's fall backwards to the rest of the incoming airborne swarm. In a single movement she swung her heavy bolter up to sight and meet the incoming razor talons and spines with wings. _CRAAACK_ she put her bolt dead center through the nerve stem of one bug, and it tumbled forwarded and into the grey dust of the ground. _CRAACK_.._CRAACK_ two more down. exa'legionate mag bolters —sounding like small puffs compared to her long range rifle— joined into taking down the flyers. Seemingly syncronized with the flyers, ground swarmers charged out from the rocks and over the bodies of the bug soldiers that had attacked before. _BOOOMM_ _BOOOMM_ _BOOOMM_ Grenades drowned out the rest of the battle fire, and demolish the last flailing attack from the bugs.
 
- In the corner of her HUD two of the green lights turned blue, indicating minor wounds. Looks like I'm on the clock. She powered up her position translator and teleported into the cover of some rocks near the squad. A bright flash followed by a shrieking bang giving away her movement and destination. Opening eyes that she closed to ease translation disorientation, she felt the ground under her feet, stowed her weapon, deployed her medic shield, and turned to find the wounded troopers.
+ In the corner of her HUD two of the green lights turned blue, indicating minor wounds. Looks like I'm on the clock. She powered up her position translator and teleported into the cover of some rocks near the squad. A bright flash followed by a shrieking bang giving away her movement and destination. Opening eyes that she closed to ease translation disorientation, she felt the ground under her feet, stowed her weapon, deployed her medic shield, and turned to find the wounded exa'legionates.
 
-The wounds were not bad, no sign of venom or acids, although the troopers arm had been impaled, it would heal quickly after she worked on it; maybe this isn't so bad for a bug hunt after all? "Can you feel it anymore?" She asked after applying
+The wounds were not bad, no sign of venom or acids, although the exa'legionates arm had been impaled, it would heal quickly after she worked on it; maybe this isn't so bad for a bug hunt after all? "Can you feel it anymore?" She asked after applying
 
 --------------
 
