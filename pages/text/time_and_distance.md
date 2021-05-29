@@ -130,3 +130,8 @@ Star Governor - Governor of a star system and its sphere of influence
 Planetary Governor - Governor of a planet and its moons
 
 ===============================================
+
+
+## Temperature
+
+terhmoxe = 2 Kelvin

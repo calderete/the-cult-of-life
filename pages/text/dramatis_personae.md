@@ -31,11 +31,17 @@
     - Frontier breaker, co-custodian of Andra Palnus, Helorque, soul bonded to Regma'tai
 
 ### The Hyperg'enot ('the endless empire', deep erappa)
+_"Vast are the stars; all belong to the first born; chosen of Coden —god-of-all-the-cosmos." —Ancient Hyperg'enot hymn_
 
-- Haego Rexus (Dre'Cladeshem)
-    - Holy Emperor _Diatas_ of the Hyperg'enot, High lord of the Rexus Dynast
-- Oroto Rexus (Dre'Cladeshem)
-    - High Lord Patriarch of the Rexus Dynast
+- Tre'schetta Revmet (Dre'Cladeshem) "The key to my longevity is quite simple really. Just be diabolical."
+    - Holy Empress _Diatas_ of the Hyperg'enot, High Lady of the Revmet dynast, ArchKnight of the Star Council
+- Rel'hieda (Dre'Cladeshem) "Let the emperor make a fool of themselves. An empress must rule"
+    - High Lady Matriarch of the Revmet dynast, ArchKnight of the Star council
+- Haego Rexus (Dre'Cladeshem) "the best peace, is earned through savagery"
+    - Holy Emperor _Diatas_ of the Hyperg'enot, High lord of the Rexus dynast
+- Oroto Rexus (Dre'Cladeshem) "Emperors are not forged not by blood"
+    - High Lord Patriarch of the Rexus dynast, ArchKnight of Star Council
+
 
 ### Voro Gata (temple of the Or'sato Greda), E'repadie (moon of Daratia), High protectorate space
 
