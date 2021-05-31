@@ -33,7 +33,7 @@
 ### The Hyperg'enot ('the endless empire', deep erappa)
 _"Vast are the stars; all belong to the first born; chosen of Coden —god-of-all-the-cosmos." —Ancient Hyperg'enot hymn_
 
-- Tre'schetta Revmet (Dre'Cladeshem) "The key to my longevity is quite simple really. Just be diabolical."
+- Tred'schetta Revmet (Dre'Cladeshem) "The key to my longevity is quite simple really. Just be diabolical."
     - Holy Empress _Diatas_ of the Hyperg'enot, High Lady of the Revmet dynast, ArchKnight of the Star Council
 - Rel'hieda (Dre'Cladeshem) "Let the emperor make a fool of themselves. An empress must rule"
     - High Lady Matriarch of the Revmet dynast, ArchKnight of the Star council
