@@ -50,10 +50,24 @@ The _to'hedgite_ roared
 
 
 
+-----------------------
 
+Drul'do: "I don't see any savants here! Do I? _hehehe_ I don't see no...engineers, no medici! Heh? Any Bietree* Builders out there? Ha! Nooooo. No pasty academics here. I see; brawlers, scrappers, fighters! Hahahahaha.... Humrego thinks you can make it to the strata as soldiers! _hehe_...Humrego knows what to look for, and so...you might make it! The savants, and engineers, and acolytes, all have places they train to master their craft. They labor for hundreds, even thousands of adexi (~years) to become MAESTROS!! Hahahah. But YOU, have this, the _kototorium_. My kototorium, where soldiers-cosmicae train to rise through the Legionatus, and into the strata."
+
+
+
+
+"You are spared such pompous titles as _maestro of cage and conduit_ hahahee, no....instead we soldiers begin as novice, and if we just don't die! We rise to elite...the sy'elite!"
+
+
+
+-----------------------
 
 
 
 
 
 _Drul'do_ "Come not to me if you need courage or strength, I train soldiers of the _cosmicae_!!, come to the Gahn dojo"
+
+--------
+Bietree: A common name

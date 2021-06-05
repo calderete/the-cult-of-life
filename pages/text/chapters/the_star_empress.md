@@ -14,9 +14,20 @@ The footfalls of the empress became audible once her escort halted at the entran
 
 Even though there was an enemy —a lone champion under heavy guard— in the castle, the old tradition stood; the empress is safe nowhere, if not in the ancestors garden. On the serene walk, she paid tribute to her ancestors, and she reflected on them and this moment, never to deceive herself in her thoughts; as was her duty to her people.
 
-What would you say if you were me? Here and now? Their advice comes with every breath of the clean air of the garden. Father? Grandfather? You would make a spectacle of it I'm sure. The time is different, now we lead a coalition of alien souls with alien creeds. Making a spectacle could be received in an unintended way. It would also make the deception I wish to make much more difficult; the deception for which, you would surely, —perhaps justifiably— call me a traitor.
+What would you say if you were me? Here and now? Father? Grandfather? You would make a spectacle of it I'm sure. The time and people are different. We lead a coalition of alien souls with alien creeds. Making a spectacle could be received in an unintended way.
 
-Her ancestors —thousands of generations ago— built the Ruducor pedestal. A simple tall, square monument to the heirs of the Castle of Storms. A spiral stair is cut into the slightly tapered sides of the of the pedestal. At the top, surrounded by symbolic ponds and short grasses planted in rich dirt* are the ancient battlements of the original Castle of Storms.
+Their advice comes to her with every breath of the clean garden air.
+
+Her ancestors built the Ruducor pedestal —thousands of generations ago. It was a one thousand lirhetta (~meters) tall stone monument to the heirs of the Castle of Storms. A spiral stair is cut into the squared, slightly tapered sides of the of the pedestal. If a traveler chooses to take the stair to the top, they would be able to see —etched into stainless iron set into the stone— the story of the Ruducor Royal family. At the top, are the ancient battlements of the original Castle of Storms. A straight path to its gate runs through grasses planted in rich dirt*, and a perimeter of symbolic ponds.
+
+I wish I had time to make that walk today; there had been too much to prepare for this spectacle though —a shame. All the elevators are stopped today; waiting for me. Waiting for justice.
+
+Father. Grandfather. Ancestors. I fear today you will tremble at my deeds.
+
+--------------------------------------
+
+
+
 
 
 
