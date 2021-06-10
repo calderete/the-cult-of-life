@@ -160,17 +160,13 @@ Even for me, _especially_ for me, death is never far. The long night will take m
 
 ------------------
 
-I am Prix'Vero Botha, reformaent. Once, a long time ago, I killed someone —for what I can't remember. After my crime I was sentenced to one thousand adex of service to the Eradeus Maxur, where I labored. I don't remember my time serving the maxur, and barely anything from before. I had my memory wiped; you see I was offered something called the 'arbiter's mercy'. I would learn during my long rehabilitation, that if a person serves a term for justice-debt, and at the end is no longer the same person, then they offered the mercy. It is perhaps the only mercy they offer.
+I am Prix'Vero Botha, reformaent. Once, a long time ago, I killed someone —for what I can't remember. After my one thousand adex (~year) sentence, my debt to the protectorate was considered absolved, and I choose to have my memory wiped. Why I did is a story I only know partially, and I'm not even sure If I really care to know.
 
-Why I decided to let the Hatara Mataratix wipe my memory, is something I sometimes want to know, but that desire never lasts long.
+During my long rehabilitation after the wipe —a story onto itself— I was told that the Legionatus Cosmica, had inquired on the status of my fitness to serve. I came to learn that before I committed my crime, I had pledge to a term of service in the Legionatus; and the Legionatus does not release those sworn to it —even in dishonor. I was fine with this, I had no where else to go; and, I would come to learn, many reformaents wind up in the legion. It's one of the few places they can thrive —if they can survive.
 
-After the wipe, I was left with only shreds of shadows of memories from before I commited my crime; it was from that seed of knowledge that my rehabilitation worked from. Under the care of the Segetum Opoli, I learned to walk and talk again; I also learned/half remembered, that I owed another debt.
+And so, once my rehabilitation ended I was sent to the 'glorious' expeditionary strike and recon force known as the exa'legionate. I learned quickly that, in the legion, anything 'glorious' is very dangerous.
 
-The Legionatus Cosmica does not release those sworn to it, and I had pledged to complete a term of service to them —of one hundred adex. I was in my fourth year, just finishing training when I committed my crime; at least that's what the Segetum Opoli told me, I don't remember.
-
-I don't regret my pledge, many reformaents end up in the Legionatus, and the Hatara had been able to preserve much of my previous skills and learned instincts; which allowed me to not start at the _complete_ bottom —the garrison legion. I was told that I would serve out my sworn-to term in the expeditionary legion. The official mission of the expeditionary, or exa'legionate, was "To provide protectorate strike and reconnaissance military presence on the vassalatus frontier, to the vota'markers, with all haste" We don't fight in big battles; it's much more dangerous.
-
-We _are_ equipped with protectorate technology. Not the best of course, just good enough so that we can get our job done. If things get really hairy during a pull out, or we get trapped while on recon, Greater Legionatus —the desa'legionate— will come and _pull us_ out.
+As the expeditionary, we are sent places were there is little to no intel and a fast, protectorate military presence is needed. The sector I serve in —since I've returned to the Legionatus— is at the nexus of several, fiercely competing primal-bug species, scattered around the nexus are thousands of sparsely developed systems. I'm not sure what's 'primal' about them. They can make jumps from planet to planet when they have enough resources. Or even send their spores out on waves of light to infect a planet with a slow building bug soldier force; which is eventually unleashed on whatever non bug things there are where they landed.
 
 -------
 

@@ -33,7 +33,7 @@
 ### The Hyperg'enot ('the endless empire', deep erappa)
 _"Vast are the stars; all belong to the first born; chosen of Coden —god-of-all-the-cosmos." —Ancient Hyperg'enot hymn_
 
-- Tred'schetta Revmet (Dre'Cladeshem) "The key to my longevity is quite simple really. Just be diabolical."
+- Tre'votu Revmet (Dre'Cladeshem) "The key to my longevity is quite simple really. Just be diabolical."
     - Holy Empress _Diatas_ of the Hyperg'enot, High Lady of the Revmet dynast, ArchKnight of the Star Council
 - Rel'hieda (Dre'Cladeshem) "Let the emperor make a fool of themselves. An empress must rule"
     - High Lady Matriarch of the Revmet dynast, ArchKnight of the Star council
@@ -41,6 +41,8 @@ _"Vast are the stars; all belong to the first born; chosen of Coden —god-of-al
     - Holy Emperor _Diatas_ of the Hyperg'enot, High lord of the Rexus dynast
 - Oroto Rexus (Dre'Cladeshem) "Emperors are not forged not by blood"
     - High Lord Patriarch of the Rexus dynast, ArchKnight of Star Council
+- Daemos Rexus (Dre'Claseshem)
+    - High Lord Prince of the Hyperg'enot, son of Haego Rexus, Lord General of the Star-Lion Knights, High commander of the Hyperg'enot twelfth army.
 
 
 ### Voro Gata (temple of the Or'sato Greda), E'repadie (moon of Daratia), High protectorate space
@@ -79,27 +81,37 @@ _"Vast are the stars; all belong to the first born; chosen of Coden —god-of-al
 ### The Hyperg'enot dynasts
 
 **Dynast standard colors are listed from most to least prominent.**<br>
-**'ultra' colors are only visible to the those that can see in many spectrums**
+**'ultra' colors are only fully visible to the those that can see in many spectrums**
 
 - Oni
-  - Colors: purple, white, black, ultra teal (ultraviolet)
+  - Colors: purple, white, black, ultra teal (UV)
 - Renee
   - Colors: white, bronze, black
 - Uru
   - Colors: green, gold, ultra teal
 - Megus
-  - Colors: yellow, black, purple, ultra purple (ultraviolet)
+  - Colors: yellow, black, purple, ultra purple (UV)
 - Jexmet
+  - Colors: red, black, ultra red (UV)
 
 - Domor
+  - Colors: blue, black, gold, ultra blue (UV)
 - Ajnau
+  - Colors: ultra blue (UV), white, black
 - Gretto
+  - Colors: ultra green (UV), purple, ultra purple (UV)
 - Polomi
+  - Colors: yellow, purple, black, ultra teal (UV)
 - Revmet
+  - Colors: black, pink, ultra teal (UV), ultra blue (UV)
 
 - Toro
+  - Colors: ultra red (UV), ultra teal (UV)
 - Higsi
+  - Colors: black, red, blue, ultra blue (UV)
 - Repau
+  - Colors: green, purple, ultra teal (UV)
 - Rexus
-  - Colors: orange, red, purple
+  - Colors: orange, grey, black, ultra purple (UV)
 - Rotomar
+  - Colors: purple, green, black

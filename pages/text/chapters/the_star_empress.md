@@ -14,7 +14,7 @@ The footfalls of the empress became audible once her escort halted at the entran
 
 Even though there was an enemy —a lone champion under heavy guard— in the castle, the old tradition stood; the empress is safe nowhere, if not in the ancestors garden. On the serene walk, she paid tribute to her ancestors, and she reflected on them and this moment, never to deceive herself in her thoughts; as was her duty to her people.
 
-What would you say if you were me? Here and now? Father? Grandfather? You would make a spectacle of it I'm sure. The time and people are different. We lead a coalition of alien souls with alien creeds. Making a spectacle could be received in an unintended way.
+What would you say if you were me? Here and now? Father? Grandfather? You would make more a spectacle of it I'm sure. The time and people are different. We lead a coalition of alien souls with alien creeds. Making a spectacle could be received in an unintended way.
 
 Their advice comes to her with every breath of the clean garden air.
 
