@@ -63,11 +63,18 @@ Drul'do: "I don't see any savants here! Do I? _hehehe_ I don't see no...engineer
 
 -----------------------
 
+"some say the ban vara almost cross the line...of something alive...and a force of nature"
+
+The Faraxi soldiers fell upon Neta from all sides. She struck out with both arms, while spinning, in lightning motions that her attackers eyes struggled to track. Her herielix* flails set to deliver devastating kinetic pulse waves. The first four Faraxi closest to her are hit with the energy force emitted from the rod like flails. The shock waves crush armor and bone. Black blood splatters and flows over the deformed and rent plate. They fly backwards into their allies, slowing their advance. As Neta's spin slows, she lets go of her herielix and they retract into her suit. As they retract, she reaches down and in her left hand grips and raises her Mec'War-Dragon, and in her right hand, her Sov-Harpoon. Both one handed elxta'cosimcae grade pistols. Her right handed buzzes and her whole body can feel the gravity waves
+
+Neta's stops spinning and let go of her flails, the two rods becoming one
 
 
-
+-----------------------
 
 _Drul'do_ "Come not to me if you need courage or strength, I train soldiers of the _cosmicae_!!, come to the Gahn dojo"
 
 --------
 Bietree: A common name
+Rek'si: A rod like weapon, either blunted or sharpened. Can be just plain metal or alloy like retra'steel, or unequipped with
+Herielix: Two rek'si* connected by a retra'steel alloy chain

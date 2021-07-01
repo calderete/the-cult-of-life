@@ -160,13 +160,7 @@ Even for me, _especially_ for me, death is never far. The long night will take m
 
 ------------------
 
-I am Prix'Vero Botha, reformaent. Once, a long time ago, I killed someone —for what I can't remember. After my one thousand adex (~year) sentence, my debt to the protectorate was considered absolved, and I choose to have my memory wiped. Why I did is a story I only know partially, and I'm not even sure If I really care to know.
-
-During my long rehabilitation after the wipe —a story onto itself— I was told that the Legionatus Cosmica, had inquired on the status of my fitness to serve. I came to learn that before I committed my crime, I had pledge to a term of service in the Legionatus; and the Legionatus does not release those sworn to it —even in dishonor. I was fine with this, I had no where else to go; and, I would come to learn, many reformaents wind up in the legion. It's one of the few places they can thrive —if they can survive.
-
-And so, once my rehabilitation ended I was sent to the 'glorious' expeditionary strike and recon force known as the exa'legionate. I learned quickly that, in the legion, anything 'glorious' is very dangerous.
-
-As the expeditionary, we are sent places were there is little to no intel and a fast, protectorate military presence is needed. The sector I serve in —since I've returned to the Legionatus— is at the nexus of several, fiercely competing primal-bug species, scattered around the nexus are thousands of sparsely developed systems. I'm not sure what's 'primal' about them. They can make jumps from planet to planet when they have enough resources. Or even send their spores out on waves of light to infect a planet with a slow building bug soldier force; which is eventually unleashed on whatever non bug things there are where they landed.
+I am Prix'Vero Botha, reformaent. Once, a long time ago, I killed someone
 
 -------
 

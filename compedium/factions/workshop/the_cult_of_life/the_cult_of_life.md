@@ -16,10 +16,16 @@ She is sent to work on the hyper-metal mining rig above the cold gas giant _Onje
 
 Her job is laying shield paneling while suspended above _Onjer'deresta_ building the hemnatic shield which will provide a normalized environment for the diverse peoples that will come to work the orbital forge.
 
+### About the Cult of Life
 
+The cult of life has many temples, and acolytes and savants. Service to the temples is rewarded with knowledge. Both acolytes and savants have many ranks, both are expected to serve and be taught. Service to the temple can be anything, some are even given life missions to full fill —common for savants. Being raised up through the cult of life also raises one in the stradta cosmicae.
+
+To serve the cult, is not be in the cult, for the cult is a fixed number.
 
 
 ### Cult of life edicts
+
+All life has a birth right to flourish
 
 The cult of life only advises, not dictates
 
