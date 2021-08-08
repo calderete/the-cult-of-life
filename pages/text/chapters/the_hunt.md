@@ -1,5 +1,5 @@
 Galaxy: Gemi'holon
-Sector: Ter'tai'deroga (erappa)
+Sector: Terr'tai'deroga (erappa)
 Sector: Heg Juter (Ogion Protectorate)
 
 _open space in between the border systems of the sector (Ter'tai'deroga - Heg Juter)_

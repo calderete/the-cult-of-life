@@ -9,7 +9,7 @@ In adept hands and implemented by master engineers, a single war dragon weapon c
 
 
 
-Ko'ton Maulers
+Ko'ton Maulers, Kentic Reavers
 
 Kinetic force wave discharger. This weapon forms a bolt of energy in the form of an exotic condensate that is entangled into a crystal structure. The condensate contains an immense amount of _Kinotons_...contructred particles that when they impact normal matter they imbue the impacted particles with kinetic energy, the result is the impacted matter flys away from the impact point with a force dependent on the impacted matter's mass and the energy of the bolt.
 
@@ -26,8 +26,3 @@ Sov Harpoon:
 Gravict Coil gun. Sov means "god touch" in descendant _Ogion_. The gravitic coil gun
 
 Crystex Aegis
-
-
-
-
-6 piece deep dish, no cheese, extra sauce, spinach, olives, onions, pineapple, baked well done, extra olives.
