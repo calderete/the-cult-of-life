@@ -158,10 +158,10 @@ I feel guilty sometimes —using my position to find companionship, technically 
 
 Even for me, _especially_ for me, death is never far. The long night will take me eventually; like it does almost all of the legionate troopers. It might be by a bug, or by a zealot, or by a billion other deadly things, but it will happen, and before it does, I intend to find what comfort I can.
 
-------------------
-
-I am Prix'Vero Botha, reformaent. Once, a long time ago, I killed someone
-
 -------
 
 UHV: Ultra High Velocity
+
+I'm Prix'vero Botha, reformaent, hedraxur seleto. I was once a lost soul. When I was young, I rebelled against my family, and culture. I'm not sure if either has fully forgiven me for it. I was lucky. For I would have rebelled no matter the time or situation I had been born into. I had the fortune of being able to go somewhere that accepts all. The Cosmicae Legionatus, motto: "No matter who you are, there is a place for you in the Legionatus". When my own society shunned me, I was able to go them. They did not care I preferred athletic pursuits, and games of strategy, over practicing my domestic rituals and mastering the clerical arts like a proper Kerveta'ormia female. Or that I maintain a non athletic "ideal" Kerveta form. The Legionatus would accept either.
+
+The legionatus accepted, all. Nearly all, were not quite yet fit to survive serving a planetary deployment. For them the legionatus would refer to the Hexa'thera which will train them; if necessary they also alter their bodies, so that they can survive the variety of conditions which will be encountered during their service. On evaluation, the legionatus stat'dadeatum, determined that my body was already on a perfect track for a frontline trooper, either gunner, or support.  I wound up as support. Both support and gunners need to be naturally strong, but supports troopers just a little more so. In the words of intake instructor Sam'resha "...you will need to run! you will be running all the time, and you'll have your shield out always..."

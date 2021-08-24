@@ -32,7 +32,10 @@ Prix wasted no time after her pod opened and her life support connection release
 
 Arch'commander Tero Hemner was already at his podium at the muster deck. From his raised platform above the wide open area, he held court with armorers, mechanics, and logistical specialists, each receiving their charges, and tasks from the young, but able commander. The armorers and logi-specialists departed and returned with racks and carts laden with the wares of war, and the mechanics left to make final checks on the drop ships. Behind the armor racks came mess tables which were set in rows on the muster deck. When the first troopers began filing in, panels in the back wall rose to reveal a mess-line, stocked and stinking with foods from all corners of the cosmos. "An army runs on its stomach"
 
-The Arch'commander observed his troopers. Measuring, weighing. He barely registered their faces, instead as his eyes tracked their movements through the mess lines and tables, and recalled
+The Arch'commander observed his troopers. Measuring, weighing.
+
+
+
 
 
 

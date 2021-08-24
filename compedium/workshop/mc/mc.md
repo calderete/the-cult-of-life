@@ -1,20 +1,20 @@
 Long range support, by Prix'vero Botha
 
-Some I kill...some I save
+Some I kill, some I save
 
-I resuscitate thousands
+I heal thousands
 
-Or I strike down at 10,000 sett
+I strike from thousands
 
-Their craniums or nerve stems bursting
+Their nerve stems bursting
 
-And I know it is a lethal blow
+I know it is a lethal blow
 
 ----------------------------------------
 
-Prix'vero Botha, born Hakmat Ira'Iahma on the tropical world of Ver'mel. Ver'mel is primarily inhabited by the a bipedal species known as the Huso. Her family objected to her joining the legion.
+Prix'vero Botha, born Hakmat Ira'Iahma on the tropical world of Ver'mel. Ver'mel is primarily inhabited by the a bipedal people known as the Huso. Her family objected to her joining the legion.
 
-The Huso have a history with the Hyperg'enot, their ancestors having once been an enslaved race. The Huso are known for their high durability, and excellent soldiering skills. They are exceptionally courageous.
+The Huso are vassals to a race known as the Ferna, the Ferna have recently themselves become lesser vassals of the protectorate. The Huso are known for their high durability, and excellent soldiering skills. They are exceptionally courageous. Their species is descendant from a common hardy gene-matrix known as ev'rapta which was influenced by
 
 
 ### Prix'vero Botha

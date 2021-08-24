@@ -33,4 +33,4 @@ Her ship had arrived at her launch point, she killed its forward motion —stopp
 
 ---------------------------------------------------
 
-Prix moved fast among the wounded, not yet processing the death of Shemeshe. They had shared their bunks for a few nights per week for all of this waking cycle (5 weeks). Prix was on the rotation for evac-landing. The smoke filled zone was considered 
+Prix moved fast among the wounded, not yet processing the death of Shemeshe. They had shared their bunks for a few nights per week for all of this waking cycle (5 weeks). Prix was on the rotation for evac-landing. The smoke filled zone was considered hot, and the support trooper carried her long range plasma rifle. She had needed to reload it several times that day so far. 
