@@ -40,27 +40,6 @@ The Arch'commander observed his troopers. Measuring, weighing.
 
 
 
+
 "Do not be warriors that only wage war." - The Cult of life
 "Let us not only be warriors of war, lest we lose our souls"
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-She was a reformaent, an ex-criminal who had paid their debt to society and was trying to re-enter the citizenship of the protectorate. Her crime had been murder, and for it she was sentenced to 1000 years of labor.Sshe was sent to the Eradues Maxur, —who administer the protectorate frontier— who sent her to the Tret Maxur which runs the labor camps. The Tret Maxur, in turn sent her to camp Ishino north, on the gas giant Onjer Deresta —which she only knew as Karputha. It was there, above a place called the diamond sea, that Prix labored on what had been named, the Karpidan Shield. The shield was made up of thousands of trillions of identical clear panels, each one a square meter with scalloped corners. When she was told to, Prix would stack the panels, and then she would be told to move the panels, or would be sent out to lay them above the Karputha sky.
-
-Above the diamond sea, she lost herself to sorrow, and then anger, and then lost the memories themselves. Her species brain's were not evolved to store and process hundreds of years of life, and even though the Tret Maxur would regularly rejuvenate her biological body, it did nothing for her mind. When she was released, she had no idea who she was, .
-
-
-Like many reformaents, she had no one to claim her after the one thousand year sentence of labor, and was a lost soul.
-
-If she had not pledged to the legionatus before her crime, she would have wound up a trooper anyways. As it was, when she had begun her rehabilitation after her release the Tret Maxur where she had served her sentence, she was informed that the legionatus was awaiting her to report and fullfill the 100 year pledge she made before her transgressions.

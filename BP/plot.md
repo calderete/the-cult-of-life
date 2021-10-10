@@ -8,7 +8,11 @@ The first squads go down and are slaughtered. Prix is told to rearm with powerfu
 
 They are deployed in a delaying action when it is found that they.
 
-##
+## Prix is captured in route by "wild forces"
+
+_Ser Drad: Veshalla Star-lion of the Hypergenot. "I am your lord and commander, Ser Drad, of the Hypergenot. To serve and die for me, will bring honor to your houses. If you are captured my hounds will find you, even if you are only bones and ash. Die with honor always"_
+
+Prix is captured by the Hypergenot in an opportunistic raid. The Legionatus keeps to its word, and sends the Jemratd Seekers to free her and the other captured troopers, but it will take time to reach her. While there, she is pressed into the Hypergenot Gladitarium, where she fights for their pleasure.
 
 
 ### Chapters

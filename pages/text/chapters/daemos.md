@@ -83,3 +83,5 @@ Imro'eth: Long ago —according to the Hyperg'enot Astro'magi— during a galact
 Razka: Elite commandos with smaller statures than other warriors and knights. They are famed for the war hounds that aid them in routing out the deepest of entrenched foes.
 
 Hetr'steel: High strength composite steel.
+
+Ser Drad: Veshalla Star-lion of the Hypergenot. "I am your lord and commander, Ser Drad, of the Hypergenot. To serve and die for me, will bring honor to your houses. If you are captured my hounds will find you, even if you are only bones and ash. Die with honor, always"

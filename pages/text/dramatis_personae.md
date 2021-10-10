@@ -29,6 +29,8 @@
     - Frontier breaker, co-custodian of Andra Palnus, Helorque, soul bonded to Getta'tai
 - Getta'tai (chen gara)
     - Frontier breaker, co-custodian of Andra Palnus, Helorque, soul bonded to Regma'tai
+- Reshme
+- Sudep
 
 ### The Hyperg'enot ('the endless empire', deep erappa)
 _"Vast are the stars; all belong to the first born; chosen of Coden —god-of-all-the-cosmos." —Ancient Hyperg'enot hymn_

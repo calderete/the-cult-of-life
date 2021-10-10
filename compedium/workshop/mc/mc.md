@@ -107,4 +107,18 @@ The wounds were not bad, no sign of venom or acids, although the exa'legionates 
 
 --------------
 
-"Any one evey ask why they need all these resources?" - unknown tropper
+"Any one ever ask why they need all these ores?" - unknown tropper
+
+
+Prix's planet —Ver'mel— has been saved from the rule of ascendant called Qur'xul.
+
+Ver'mel was dominated by the Huso. Tall and bipedal with a symmetry of two. There were over a dozen sentient species on Ver'mel, put there by Qur'xul.  The inhabitants of Ver'mel knew Qur'xul as the goddess Oltha'na. Oltha'na imbued some inhabitants of Ver'mel with abilities creating mage and sorcerer.
+
+Prix was born after the liberation, she did not know the time of chaos, as it was called. Her father had been a powerful mage-priest. Once Ver'mel had benn liberated, he lost his powers and position, the intermediary government installed by their saviors recast him as a government official. Their saviors called themselves the Ogion. They had not  desired the freedom of Ver'mel, but rather to neutralize Qur'xul who —in their arrogance— attempted to subvert some systems already under the protection of Ogion. The Ogion normally did not vassalize worlds that did not wish to be, but their code dictated that a liberated world is the responsibility of the protectorate, and so they took the rare action of establishing a heavy presence on Ver'mel, to bring peace to a world in upheaval.
+
+
+
+
+
+
+------------------------------
