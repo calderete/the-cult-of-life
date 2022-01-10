@@ -1,0 +1,1 @@
+Admiral Hurku didn't know what to make of thing standing in front of him. He couldn't tell it seemed to have two legs, made of grey metal. Two lights shining from beneath a hood appeared to be eyes. It seemed to him to be some sort of android 
