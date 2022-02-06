@@ -17,7 +17,12 @@ Prix is captured by the Hypergenot in an opportunistic raid. The Legionatus keep
 
 ### Chapters
 
+### God Hunters
+-----
+ban vara over class 25 are the are part of the Argente Vatikor, stronger, larger, and imbued with cosmic powers; they are almost as powerful as the Ascendeti Guard.
+-----
 
+Directa'executor Sar'tego leads an army to liberate Ver'mel from a chaotic ascendant named Qur'Xul. Two Custodia Conquesta (evex'elite Ban Vara class 22-98), at the head of an assault battalion of heavy guard. For this mission a mix mech assault units, and mobile heavy infantry. Two Custodia Argente (evex'elite Ban Vara class 28-34), are charged with subduing, and capturing Qur'Xul. The two Custodia Argente are named Revetu Hae'rori, and Exuto Demota. Exuto, would take the lead, and Revetu would be on stand by in the shadows, watching for the unexpected. The two Custodia Conquesta were named Shizuxa Pryn and Uvetho Blanta. Exuto ambushes Qur'Xul, after a brief fight Qur'Xul is banished. Shizuxa lead a force of guards on the capital and Uvetho commanded the occupying forces which would disperse over Ver'mel to bring the peace of the protectorate. As Qur'xul is defeated she triggers several traps, killing hundreds of thousands, and causing millions to vanish in thin air.
 
 
 
