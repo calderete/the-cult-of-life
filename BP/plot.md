@@ -22,7 +22,17 @@ Prix is captured by the Hypergenot in an opportunistic raid. The Legionatus keep
 ban vara over class 25 are the are part of the Argente Vatikor, stronger, larger, and imbued with cosmic powers; they are almost as powerful as the Ascendeti Guard.
 -----
 
-Directa'executor Sar'tego leads an army to liberate Ver'mel from a chaotic ascendant named Qur'Xul. Two Custodia Conquesta (evex'elite Ban Vara class 22-98), at the head of an assault battalion of heavy guard. For this mission a mix mech assault units, and mobile heavy infantry. Two Custodia Argente (evex'elite Ban Vara class 28-34), are charged with subduing, and capturing Qur'Xul. The two Custodia Argente are named Revetu Hae'rori, and Exuto Demota. Exuto, would take the lead, and Revetu would be on stand by in the shadows, watching for the unexpected. The two Custodia Conquesta were named Shizuxa Pryn and Uvetho Blanta. Exuto ambushes Qur'Xul, after a brief fight Qur'Xul is banished. Shizuxa lead a force of guards on the capital and Uvetho commanded the occupying forces which would disperse over Ver'mel to bring the peace of the protectorate. As Qur'xul is defeated she triggers several traps, killing hundreds of thousands, and causing millions to vanish in thin air.
+Directa'executor Sar'tego leads an army to liberate Ver'mel from a chaotic ascendant named Qur'Xul. Two Custodia Conquesta (evex'elite Ultra Vara class 22-98), at the head of an assault battalion of heavy guard. For this mission a mix mech assault units, and mobile heavy infantry. Two Custodia Argente (evex'elite Ban Vara class 28-34), are charged with subduing, and capturing Qur'Xul. The two Custodia Argente are named Revetu Hae'rori, and Exuto Demota. Exuto, would take the lead, and Revetu would be on stand by in the shadows, watching for the unexpected. The two Custodia Conquesta were named Shizuxa Pryn and Uvetho Blanta. Exuto ambushes Qur'Xul, after a brief fight Qur'Xul is banished. Shizuxa lead a force of guards on the capital and Uvetho commanded the occupying forces which would disperse over Ver'mel to bring the peace of the protectorate to the rest of the world. As Qur'xul is defeated she triggers several traps, killing hundreds of thousands, and causing millions to vanish into thin air.
+
+### The Eternal Bastion
+
+Resistance is mostly small and isolated, The central resistance is from the mountainous island country of Cuthos in the cold souther waters of the Aerielisk Ocean; and from the Queen's own Diamond Guard. Shizuxa leads an airborne attack on the barracks of the Diamond Guard, while Uvetho attacked the fortresses of Cuthos. Under the mountains, an elite army led by the Weva general Rem'ta Duri'xi digs in, and begins to organize an insurgency. Uvetho's attack is from air and sea, deploying a war platform under the into the Aerielisk ocean, and navigates underwater to the island waters (Drudien Sea), where they strike at Estamre and Rimi forces that are gathering in the oceans around the fortress island.
+
+### Prix
+-----
+Prix awakens in Hypergenot holding ship Seeker of Glory. She meets a Dwalf and a Wie in her cells. She learns that the ship is on a years long course, collecting "living tribute" for the Hypergenot. Everyone from scientists to warriors are conscripted from the worlds under the Hypergenot. Some worlds are dedicated to supplying "living resources" to the empire and have planet wide infrastructure dedicated to raising slaves and warriors. Every few days a gladiator selector goes through and picks those that they wish to fight in the ship's proving rings. After two days a selector picks Prix and she is shipped to the gladiator pits deep within the ship.
+
+###
 
 
 

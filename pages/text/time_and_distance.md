@@ -45,8 +45,8 @@ kaydex = 30 caldex
 Adex = 10 Kaydex/300 Caldex<br>
 Ketdex = 10 Adex (Ket Cycle)<br>
 Soradex = 100 Adex (Soral Cycle)<br>
-Tekadex 1,000 Adex (Teka Cycle)<br>
-Heptadex = 10,000 Adex (Heptalogos Cycle)<br>
+Tekadex 1,000 Adex (Teka Cycle) ()<br>
+Heptadex = 10,000 Adex (Heptalogos Cycle) ()<br>
 Metadex = 1,000,000 Adex (Metalogos Cycle)<br>
 Deonox = 1,000,000,000 Adex (Deonoxium Cycle)<br>
 
