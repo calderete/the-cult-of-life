@@ -19,7 +19,11 @@ The Eternal Courage appeared above the Dra'sul crossing without warning, the gat
 
 Squad Dresta-24 signaled to command that bridge crossing was secure. They had been ordered by Custodia Conquesta Uvetho to secure this area and show threat to bring out any remaining elements. The guards had been standard infantry, Uvetho had told them, there are far greater warrriors on this world than would at first appear.
 
-More mech-infantry squads streamed from the Eternal Courage towards the black stone in the mountaines, towards the Bastion of Eternity. Each squad consisting of 6 armored modular machines, officailly know as Omni-Guard (OG) class battle suits. Every inch of outer surface of an Omni-Gaurd class suit was diamond hard —including weapons. Each OG suite could walked on two thick legs, which could transform into four if required. Eight arms —most ending in various gun and launcher barrels branched from armored servos on the suites back.
+More mech-infantry squads streamed from the Eternal Courage towards the black stone in the mountaines, towards the Bastion of Eternity. Each squad consisting of 6 armored modular machines, officailly know as Omni-Guard (OG) class battle suits. Every inch of outer surface of an Omni-Gaurd class suit was diamond hard —including weapons. Each OG suite could walked on two thick legs, which could transform into four if required. Eight arms —most ending in various gun and launcher barrels branched from armored servos on the back.
+
+--------------------------
+
+Within the halls and barracks of the bastion of eternity, chaos and panic ensued, Lord General Harok'to ordered the bastion locked down, and the Golems to munster. The sight of the towering golems marching to the high battlements brought some calm to the panicing soldeirs and guardsmen. The ground trembled under their long armored legs. From the council overlook, (which has not been used in battle since the last time this island had been invaded centuries ago), Harok'to scanned the horizon, he could see mostly clouds, the seers told him something big was out there, dropping giant mechanical soldiers. Reports where that the bridge had been annihilated, and the city gaurds had not responded to communication for the last ten minutes.
 
 
 

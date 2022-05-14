@@ -1,3 +1,6 @@
+#### The Cult of Life
+### By Carlos Antonio Alderete
+
 ## Prix fights bugs on Vit'os
 
 Starts with an intro, there is a bug battle, she makes some small mistakes that she gets grilled for at the end. She meets Shemeshea. At the end her squad is sent on yet another bug hunt.
