@@ -58,7 +58,7 @@ Sefra Gladiox - slave gladiator. When the slavers come to equip them, they also 
 
  - **Sefra Gladiox**
 
-Prix rises to the second cloister, and is again put into a facing pit, this time there is no confusion about the meaning of their surroundings. They are to wait there, until they both go to the ring, and only one will walk out. She wins the second match, and is advanced to third and final cloister. They are not placed into two person cells, but instead into the "Sefra Arenas". Twelve gladiox are put into each arena, and told to fight towards the light, the last alive wins. Prix stalks and kills her opponents and is declared Anote Gladiox of the cloister, one of hundreds of gladiator initiates on the Seeker of Glory that will fight on a planetary arena.
+Prix rises to the second cloister, and is again put into a facing pit, this time there is no confusion about the meaning of their surroundings. They are to wait there, until they both go to the ring, and only one will walk out. She wins the second match, and is advanced to third and final cloister. They are not placed into two person cells, but instead into the "Sefra Arenas". Twelve gladiox are put into each arena, and told to fight towards the light, the last alive wins. Prix stalks and kills her opponents and is declared Anote Gladiox of the cloister, one of hundreds of gladiator initiates on the Seeker of Glory that will survive to fight on a planetary arena.
 
 - **The Iron Hounds** (move up)
 
@@ -75,3 +75,17 @@ Heavy strike squadron Restor 51 tracks and disables the Seeker of Glory. The See
 
 - **Another**
   - The _Veskas Stra'ixes_ AKA xata'reavers AKA reavers attack.
+
+  ===================
+
+
+  ===================
+
+-----------------
+
+- **Barracks Land**
+
+Prix and Shemeshe find time in the barracks sector of the Legionatus troop cruiser Von'Lusio.
+
+- **Sword Fall**
+Prix continues to cover the valley at breach 402
