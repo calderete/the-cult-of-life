@@ -1,4 +1,4 @@
-The Stradta Empress of Stars, The Liberator of Crystoxia, Keeper of Stardoom Spire, Collector of the Stars. Queen of the castle of storms, queen of the crystal throne. High Empress of the Stradta'nexum. Cass'erae Ruducor
+The Stradta Empress of Stars, The Liberator of Crystoxia, Keeper of Stardome Spire, Collector of the Stars. Queen of the Castle of Storms, Queen of the Crystal throne. High Empress of the Stradta'nexum. Cass'erae Ruducor
 
 Half of the sectors in the N'fetva galaxy were under the control the Stradta'nexum which had united those factions which opposed the the Urvuat. A hegemony which controlled the other half of N'fetva and was supported by the Hyperg'enot. The family of the Holy Empress Sevi'tev Xi'ra Revmet
 

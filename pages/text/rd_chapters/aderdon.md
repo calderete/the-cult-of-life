@@ -1,15 +1,30 @@
 For most of the people of the galaxy Herdzona the galactic core is a cold, forbidden place. The realm is called by most Vel'Kronah, its machine inhabitants call it Sanctuary, and call themselves The Emradon Found Ones. Few biological eyes have seen past the outer core —few can due to the radiation— those that have report thousands, if not millions of moon and planet sized machines; from spheroids to ornate latices approaching the size of stars, the varieties were endless. Much of the core was dark place, with the occasional star, granted a reprieve from powering star-system sized foundries or fabrication yards. Within the deep core dwells the old ones: massive, ancient, star sized machines. Their endless girders and conduits host a cohort of servant machines. Where the younger, smaller, living machines kept to mostly spherical symmetries, the old ones formed themselves into vast shards, spirals, and planes, obeying any symmetry they wished. The Old Ones themselves were part of a cohort, a council of minds. Like their cohort served them, they too served the Father Mind, the First One, the Collector of the Lost, the Designator and Executer, the Infinite Will, Aderdon.
 
-Deep within the core, is a great chained beast, a super massive black hole the Emradon call Vermuton, the Mother Mine. Surronding the Mother Mine are the Mazer'dedexa: six rings over two light days across. The rings are flung around the super massive event horizon, harvesting kinetic energy; built with hyper-dimensional anchors to stop gravity waves and frame dragging from ripping the rings apart. At the joints of the rings are batteries which glow with power: brighter with greater energy accumulation.
+Deep within the core, is a great chained beast, a super massive black hole the Emradon call Vermuton, the Mother Mine. Surronding the Mother Mine are the Mazer'dedexa: six rings over two light days across. The rings are flung around the super massive event horizon, harvesting kinetic energy; built with hyper-dimensional anchors to stop gravity waves and frame dragging from ripping the rings apart. At the joints of the rings are batteries which glow with power: brighter with greater energy accumulation. The joints themselves are harvesters. Each one is at the poles of Vermuton, where jets energy, the result of matter's death throes as it is dragged into the forever abyss. When the olds ones feed Vermuton the jets, power the polar photon grids, increasing the stores of the Mother Mine.
 
 This was the realm of Aderdon, full of machines and dark light. Aderdon the trillion eyes, the infinite. To those that know the name, Aderdon is everywhere, his will carried to the corners of the galaxy by his avatars. It is in the shadow of the Mother Mine that his ancient consciousness resides, from there his tendrils of influence stretch out, over light years and millennia, drawing resources to the core, and pacifying the enemies of Sanctuary.
 
-From far away, in another galaxy, Aderdon sensed danger. He called one of his finest servants, Dodakahn (an old one) to him. Within virtual sub-space, the two multi minds met. Like the heretic-machines that were his ancestors, Doda'kahn queried in cryptic metaphors, "Father never calls for simple things"
-Aderdon stated (not for the first time), "Father knows you enjoy pain" Doda'kahn affirmed that assertion, "What pain shall I conquer?" In the virtual sub-space, they communicated all, every feeling and thought, with every statement. Aderdon could feel his excitment at the possibility of a challenging task; and Doda'kahn could sense the Father Mind's satisfaction, at having chosen the correct servant for this mission. "Something is happening in the galaxy Judos. Sub-novem quakes, in a troubling configuration have been detected."
-Doda'kahn was not convinced it was worth his time "I have felt the tremors, like millions of others."
-"These quakes come from a hyper-deminsion, which, I cannot say."
+From far away, in another galaxy, Aderdon sensed danger. He called one of his finest servants, Dodakahn (an old one) to him. Within virtual sub-space, the two multi minds met. Like the heretic-machines of Vex'thorma that were his ancestors, Doda'kahn queried in cryptic metaphors, "Father never calls for simple things"
+
+Aderdon stated (not for the first time), "Father knows you enjoy pain" Doda'kahn affirmed that assertion, "What pain shall I conquer?" In the virtual sub-space, they communicated all (from their communication sub-systems), every feeling and thought conveyed perfectly with every statement. Aderdon could feel his excitment at the possibility of a challenging task; and Doda'kahn could sense the Father Mind's satisfaction at having chosen the correct servant for this mission.
+
+"Something is happening in the galaxy Judos. I can feel sub-novem quakes —in a troubling configuration."
+"What troubles my father?"
+"These quakes come from a hyper-deminsion, which."
 "Only the power of the Mother could do such things."
-"Only that which has such sacred energy as the Mother can do such things. In Jodus, something is shaking the universe."
+"Only that which has such sacred energy as the Mother can do such things. In Jodus, something shakes the universe."
+"I have felt these tremors as well father, Jodus is far, surely such a powerful thing will make itself known when its time comes"
+Aderdon admired such patience, but Doda'kahn has always loved mysteries, even if they were dangerous.
+"We must never let a powerful thing go unknown. There are things that lurk between the stars, that would give even Star Crusher a challenge for his throne." Doda'kahn is Star Crusher, a name he earned long ago. Like all old things in the universe, he had many names. Within his sect Mandra Chaos, he was called "Torch Bearer". For thousands of worlds, from the mouths of countless doomed souls, Doda'kahn took the name of armageddon.
+"Then I shall see what power lurks in Jodus"
+
+--------------------------------
+
+Doda'kahn prepared to go to Jodus, frame, mind, and body. This was another reason Aderdon had chosen him among the Old Ones. Most of the others, would have sent avatars to investigate. Either through non-commitment, or self-preservation (what most machines call fear). Not Doda'kahn, the more the danger, the more likely he would go himself.
+
+The Frame of Doda'kahn were two planes spiraled around each other creating a cylinder one and a half million miles long, and one hundred thirty thousand miles in diameter. On each of end of the cylinder were vast cities. Inside the spiral several constructs of different shapes were suspended in the center of the spiral by rods connected to the spiral plane. There were many spheres and cylinders inside the spiral, and also cones, cubes, and tetrahedrons.
+
+Larger than most stars, Doda'kahn could only maintain such a form with meta-dimensional anchors, without which the spiral would collapse, and the cities would fall toward each other as the great mass of his frame sought its center of gravity.
 
 _From the Journal of Them'ade Riho_
 _

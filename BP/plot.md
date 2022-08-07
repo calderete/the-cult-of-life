@@ -18,6 +18,14 @@ _Ser Drad: Veshalla Star-lion of the Hypergenot. "I am your lord and commander, 
 
 ### Chapters
 
+### Hezra
+
+### Desmodea
+
+### the princess
+
+### Aderdon
+
 ### God Hunters
 -----
 ban vara over class 25 are the are part of the Argente Vatikor, stronger, larger, and imbued with cosmic powers; they are almost as powerful as the Ascendeti Guard.
@@ -68,13 +76,23 @@ After the liberation of Ver'mel Directa'executor Sar'tego discovers that Qur'xul
 
 Heavy strike squadron Restor 51 tracks and disables the Seeker of Glory. The Seeker of Glory is also transporting a battalion mercenaries that have been spectating the matches, the Iron Hounds have to fight through them, deck by deck, until they come upon the almost lifeless body of Prix, she is the only survivor from the Seeker of Glory, all the rest are recovered as bodies.
 
+- **Homeland**
+
+Prix awakens from medical stasis on Ver'mel. Her world has been liberated and is in chaos. Her father and mother are not speaking, her friend group has also fractured. Desmodea is out as a revolutionary, and her group, Sisters of Justice, has become publicly known. The Sisters of Justice's mission remained bringing the Silver Queen to justice. The are one of many groups that train to join their liberators intergalatic army, the Legionatus. Desmodea commits a crime and is sent to a labor camp. Prix walks around her old town, and decides to join the Sisters of Justice, to join the Legionatus, and perhaps one day hunt the Silver Queen, Qur'Xul.
+
+- **Sisters of Justice**
+
+Prix trains to join the Legionatus.
+
+- **Legion**
+
+Prix boards a conscript shuttle and is inducted into the Legionatus
+
 
 - **Shemeshea**
   Prix goes to Shemeshea's bunk, bringing some of her extra rations and some stockpiled —against Legionatus protocol—. They talk and get to know each other over dinner, then lay together in Shemeshea's standard issue bunk, and pleasure each other. Then they tell each other stories about were they've been with the exa'legionate. Prix asks about Shemeshea's childhood.
 
 
-- **Another**
-  - The _Veskas Stra'ixes_ AKA xata'reavers AKA reavers attack.
 
   ===================
 
@@ -86,6 +104,12 @@ Heavy strike squadron Restor 51 tracks and disables the Seeker of Glory. The See
 - **Barracks Land**
 
 Prix and Shemeshe find time in the barracks sector of the Legionatus troop cruiser Von'Lusio.
+
+- **Infernus**
+
+Prix and Shemeshe land on Tref'lo, they are deployed to a reserve line. The troopers are quickly overrun and falling back, Prix is the only survivor of her squad. She is re-assinged to emergency duty covering the hastily constructed shield line. The Cosmic Guard lands armed with vaporizing fire mortars. They are able to slow the Vhm down.
+
+She is placed at a point called breach 402
 
 - **Sword Fall**
 Prix continues to cover the valley at breach 402
